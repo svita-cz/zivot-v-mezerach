@@ -34,7 +34,7 @@ Vlak vrzal a podle zvuku to znělo, že se za chvíli rozpadne na jednotlivé pr
 
 Hlubočické železnice mají tu kouzelnou schopnost sestavit vlak z všelijakých prastarých vozidel nakoupených z druhé až třetí ruky někde ve východní evropě a tak si naši cestující mohli jen nechat zdát o takových vymoženostech jako je třeba informační sytém pro cestující uvnitř vozidla. Ano, ve voze sice byla mapa železníční sítě, ale ta mapa byla zjevně ještě z předchozího působiště vozu a navíc měl detektiv podezření, že stát na mapě zobrazený už dávno zanikl.
 
-Rozhlédl se a zjistil, že jsou s Markétou ve vagóně sami. "Půjdu se zeptat průvodčího, kam jedem," řekl, zvedl se a přešel do druhého vagónu. Tam vlak končil, zbývala jen lokomotiva a soudě dle počtu pasažérů by bohatě stačil prostor pro posádku na lokomotivě. Dva vagóny a jedna dieselová lokomotiva je zkrátka pro čtyři cestující a jednoho spícího psa zbytečný luxus.
+Rozhlédl se a zjistil, že jsou s Markétou ve vagóně sami. "Půjdu se zeptat průvodčího, kam jedem," řekl, zvedl se a přešel do druhého vagónu. Tam vlak končil, zbývala jen lokomotiva a soudě dle počtu pasažérů by bohatě stačil prostor pro posádku na lokomotivě. Dva vagóny a jedna dieselová lokomotiva je zkrátka zbytečný luxus pro čtyři cestující a jednoho spícího psa.
 
 "Příští vystoupíme", řekl Markétě, když se vrátil, a posadil se vedle ní. Pohladil jí po dlani a za okny se míhaly borovice.
 

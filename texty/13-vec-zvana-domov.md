@@ -206,37 +206,13 @@ Když tu náhle spatřil něco zvláštního - tři fotografy a jednu modelku, k
 
 V tu chvíli zavál vítr k Viktorovi jakousi vlezlou melodii z rádia:
 
-> Eins, zwei, drei, vier  
->   
-> We are standing here  
-> Exposing ourselves  
-> We are showroom dummies  
-> We are showroom dummies  
->   
-> We're being watched  
-> And we feel our pulse  
-> We are showroom dummies  
-> We are showroom dummies  
->   
-> We look around  
-> And change our pose  
-> We are showroom dummies  
-> We are showroom dummies  
->  
-> We start to move  
-> And we break the glass  
-> We are showroom dummies  
-> We are showroom dummies  
->  
-> We step out  
-> And take a walk through the city  
-> We are showroom dummies  
-> We are showroom dummies  
->  
-> We go into a club  
-> And there we start to dance  
-> We are showroom dummies  
-> We are showroom dummies  
+	Eins, zwei, drei, vier  
+  
+	We are standing here  
+	Exposing ourselves  
+	We are showroom dummies  
+	the showroom dummies
+	the showroom dummies... 
 
 A v tu chvíli Viktor pochopil detektivův plán. Někdy nejsou potřeba pravomoci, někdy postačí ostatní ponechat v iluzi, že je máte.
 

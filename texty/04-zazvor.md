@@ -62,7 +62,7 @@ Už stála v koupelně v županu a čistila si zuby, když si na něco vzpomněl
 
 V zásuvce psacího stolu ležela ještě neotevřená sada volebních lístků. Markéta nezvolila[^z2].
 
-Jedním z důvodů byl mizerný výběr. Z kandidátů připadala v úvahu asi jen matka její spolužačky Valérie, samotná Valérie se však na možnost, že by se přes noc stala dcerou starostky, dívala docela kriticky. Kromě toho Markéta neměla čas. Všechny ty výstavy, zkoušky, včerejší koncert Obwodu LRC…
+Jedním z důvodů byl mizerný výběr. Z kandidátů připadala v úvahu asi jen matka její spolužačky Valérie, samotná Valérie se však na možnost, že by se přes noc stala dcerou starostky, dívala docela kriticky. Kromě toho Markéta neměla čas. Všechny ty výstavy, zkoušky, včerejší koncert Krajní levice v baru U křepelky…
 
 Otevřela zásuvku a vzala lístky. Přemýšlela, zda to stojí za to chodit ven, a nakonec se rozhodla, že jo. Oblékla si mikinu a tepláky, na šaty, ve kterých přišla, už byla venku moc zima.
 

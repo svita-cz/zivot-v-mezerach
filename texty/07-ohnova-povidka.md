@@ -16,7 +16,7 @@ Detektiv totiž trpěl takovou úchylkou z povolání. Stejně jako železničá
 
 „No i když…“ pokračoval detektiv. „I když představ si, že právě tady u vás na Větrné hůrce prý řádí pyroman. Počkej, až dorazíme domů, tak ti to přečtu.“ - Markéta odložila fotoaparát a podívala se na detektiva: „Mě se náhodou oheň líbí. Uklidňuje mě,“ řekla a tajemně se usmála. To byla druhá věc, která na detektiva působila přímo jako kouzlo - široká škála Markétiných šklebů a úsměvů, jeden neodolatelnější než druhý.
 
-Došli k hranici. Čarodějnice z Větrné hůrky už hořela mocným plamenem. Dorazili asi všichni, které detektiv čekal: Děti, důchodci i puberťáci, pro které byly Čarodějnice jenom další záminkou k alkoholismu. Do hranice přikládal člověk, který sám vypadal jako čert. Detektiv koukal na ten pohanský svátek. Tohle nemělo s Kristovým učením nic společného, šlo jen o ty ohně. Jako v dobách, kdy v tomto údolí nebylo žádné město, žádný hrad, žádný klášter ani kostely, jen údolní osada na křížovatce cest místního významu.
+Došli k hranici. Čarodějnice z Větrné hůrky už hořela mocným plamenem. Dorazili asi všichni, které detektiv čekal: Děti, důchodci i puberťáci, pro které byly Čarodějnice jenom další záminkou k alkoholismu. Do hranice přikládal člověk, který sám vypadal jako čert. Detektiv koukal na ten pohanský svátek. Šlo jen o ty ohně. Jako v dobách, kdy v tomto údolí nebylo žádné město, žádný hrad, žádný klášter ani kostely, jen údolní osada na křížovatce cest místního významu.
 
 Oheň hřál do tváří. Detektiv vzal Markétu za ruku a byl překvapen. Zatímco předtím na procházce měla ruce studené, nyní u ohně skoro hořela. Jako nějaký salamandr.
 

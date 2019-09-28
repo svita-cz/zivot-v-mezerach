@@ -44,8 +44,8 @@ vírou, že odkloní dopravu z centra města. Ve skutečnosti ji spíše
 přikláněl, ale jinak sloužil tak, jak měl. Jeho dobrý kilometr betonové
 délky překlenoval území, kde v podstatě nic nebylo. Na jednom břehu
 pískovna, pak řeka a její slepá ramena a pak zase nějaký zarostlý břeh.
-Most byl stranou od města, a tak na něm, když po něm detektiv
-v hlídkovém voze projel, nebylo ani živáčka, ba ani motorové vozidlo
+Most byl stranou od města, a tak na něm (když tam detektiv
+projel v hlídkovém voze) nebylo ani živáčka, ba ani motorové vozidlo
 byste tam nepotkali. Byla už noc a bledé měsíční světlo osvětlovalo
 mlhu, která pomalu plynula po proudu řeky. Celá ta scenérie vypadala jak
 z nějaké béčkové detektivky.

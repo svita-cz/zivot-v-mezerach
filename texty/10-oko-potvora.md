@@ -42,7 +42,7 @@ Poslat ty fotky a nic nechtít? Tím bych akorát zlomil její důvěru. Ze stej
 Do galerie? Ano, mohl bych si je nechat vytisknout. Pak jsem si ale představil, jak by se tvářila ta zrzka z fotolabu. Do toho, co je na fotkách, by jí sice nemělo nic být, ale akty se přece jen nefotí teleobjektivem přes dvůr.
 Tohle taky nepůjde. Škoda, nad krbem na chatě by se to vyjímalo.
 A pak mi to došlo. Náhle bylo jasné, že s tím můžu udělat jen jednu jedinou věc.
-Označil jsem těch šest souborů a stiskl tlačítko DELETE. „Chcete tyto soubory (6) přesunout do koše?“ - „Ano.“
+Označil jsem těch šest souborů a stiskl tlačítko DELETE. „`Chcete tyto soubory (6) přesunout do koše?`“ - „Ano.“
 
 * * *
 
