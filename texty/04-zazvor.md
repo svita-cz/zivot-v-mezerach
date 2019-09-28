@@ -81,6 +81,5 @@ Markéta vzala láhev Zázvorovice stojící u paty mísy a ochutnala. Otřásla
 „Jak můžete s takovýmhle názorem každé ráno vstát, jít do školy a tam vyučovat?“ zeptala se ho a položila lahev Zázvorovice na okraj mísy. Filozof lovil v hlavě jakýsi Nietzscheho citát, ale než ho stačil vyslovit, Markéta zmizela za teréním zlomem v přízemní chodbě činžáku.
 
 `Ámen`
- 
 
 [^z2]: A tady je dobré připomenout, že v Hlubočici mají místní (obecní) úřady o dost silnější pravomoci než v Čechách. Jedním z důsledků je i přímá volba starosty.
