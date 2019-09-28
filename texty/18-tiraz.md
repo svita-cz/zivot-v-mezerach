@@ -1,4 +1,4 @@
-### TOC
+## TOC
 
 *sem pagebreak*
 
@@ -8,4 +8,4 @@ SEM VLOŽIT TOC!!!
 
 ## tiráž
 
-TBD
+tady bude tiráž...

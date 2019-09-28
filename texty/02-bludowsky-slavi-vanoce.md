@@ -94,5 +94,5 @@ Pak si dále povídali. O Vánocích, rodině, o tom, co kdo dostal. Bety se roz
 
 „Všechno zlé je k něčemu dobré“ dodala Bety. Bludowský se usmál a smířil se světem. Nechal všechny zloděje a podvodníky, lichváře a politiky ať si v klidu užijí Vánoc. Však on jim to příští rok spočítá!!!
 
-[^b1]: V tom se ovšem detektiv mýlil. Nejhorší je to prý mezi únorem a květnen.
+[^b1]: V tom se ovšem detektiv mýlil. Nejhorší je to prý období mezi únorem a květnem (včetně).
 

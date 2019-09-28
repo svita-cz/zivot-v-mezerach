@@ -1,3 +1,3 @@
 ## Technoprincezna
 
-TBD
+*...tady bude opsaná technoprincezna...*

@@ -1,3 +1,3 @@
 ## předmluva autora
 
-TBD
+...tady bude předmluva...
