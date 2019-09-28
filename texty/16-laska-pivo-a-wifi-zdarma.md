@@ -380,3 +380,5 @@ No, jak tak na něj koukám, tak je toho zřejmě potřeba víc...
 
 *Děkuji též Singularis/ovi za obdivuhodnou práci při sepsání povídky ze zvukového záznamu do počítače.*
 
+![Někdy člověk skutečně potřebuje jen trochu piva, lásky a možnost zatančit si s dealerem na náměstí.](obrazky/nahled_16.jpg)
+

@@ -83,3 +83,5 @@ Markéta vzala láhev Zázvorovice stojící u paty mísy a ochutnala. Otřásla
 `Ámen`
 
 [^z2]: A tady je dobré připomenout, že v Hlubočici mají místní (obecní) úřady o dost silnější pravomoci než v Čechách. Jedním z důsledků je i přímá volba starosty.
+
+![No prostě pálim nepoužité volební lístky za tichého zpěvu Finských metalových balad…](obrazky/nahled_04.jpg)
