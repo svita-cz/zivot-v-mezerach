@@ -132,13 +132,13 @@ Perestrojka byla tím hlubokým lidským příběhem dojata: „A co budete děl
 
 Napili se kávy, jejich pohledy se setkaly a Perestrojka stydlivě sklopila zrak. Viktor zíral z okna na zeď tramvajové vozovny a pomalu rozplétal klubíčko filozofie: „Nenene… Člověk nemůže žít proto, aby vydělával… Člověk musí vydělávat proto, aby žil…
 
-Život… To je koncert Krajní levice v baru U křepelky.  \
-Život, to je mlha z rána nad krajem.  \
-Život, to je cesta vlakem k babičce a vůně lužních lesů,  \
-život, to je objetí když hraje jazz…  \
-Život, to je když prší a listím šumí les.  \
-Život… Ne, to nejsou nekonečné brífinky, mítinky, účetní uzávěrky a inventury ve skladu.  \
-Ne… Život, ten se nedá zvážit, změřit ani odečíst z daní nebo z nákladů.“
+	Život… To je koncert Krajní levice v baru U křepelky.
+	Život, to je mlha z rána nad krajem.
+	Život, to je cesta vlakem k babičce a vůně lužních lesů,
+	život, to je objetí když hraje jazz…
+	Život, to je když prší a listím šumí les.
+	Život… Ne, to nejsou nekonečné brífinky, mítinky, účetní uzávěrky a inventury ve skladu.
+	Ne… Život, ten se nedá zvážit, změřit ani odečíst z daní nebo z nákladů.“
 
 Zase lok kávy a Viktor se vrátil zpět do prózy: „Na první místo jsme si dali ekonomiku a staráme se jenom o ní. všechno musí vydělávat a růst, ale zapomínáme přitom na lidi… Vemte si třeba, jak srovnáváme státy - podle HDP, vždyť to je přece zvrácené!“
 

@@ -63,4 +63,4 @@ Na jednom okně na Vinohradech se objevily nové závěsy. Pomáhal jsem je vybr
 
 * * *
 
-Poděkování si zaslouží: Alfred Hitchcock, Brian De Palma, Pavel Bušta ale především slečna Áňa. 
+*Poděkování si zaslouží: Alfred Hitchcock, Brian De Palma, Pavel Bušta ale především slečna Áňa.* 

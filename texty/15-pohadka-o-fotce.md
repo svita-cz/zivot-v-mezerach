@@ -1,12 +1,12 @@
 ## Pohádka o fotce
 
-Každého lze vystopovat.
-
-Na internetu není soukromí a neexistuje anonymita. Každý krok, každá navštívená stránka, každé kliknutí je zaznamenáno a uloženo. Každý, kdo se vyskytne na síti, chtě nechtě zanechává stopy a nepřímá vodítka. A právě tyto indicie mohou být použity pro sledování osob a získávání informací o jejich soukromí, aniž by byl porušen jediný zákon a prolomeno jediné heslo.
-
-A to je podstata internetového stalkingu - legální získávání informací, které nejsou určeny vám.
-
-Karel Čížek: úvod povídky Stalker číslo 47
+> Každého lze vystopovat.
+>
+> Na internetu není soukromí a neexistuje anonymita. Každý krok, každá navštívená stránka, každé kliknutí je zaznamenáno a uloženo. Každý, kdo se vyskytne na síti, chtě nechtě zanechává stopy a nepřímá vodítka. A právě tyto indicie mohou být použity pro sledování osob a získávání informací o jejich soukromí, aniž by byl porušen jediný zákon a prolomeno jediné heslo.
+>
+> A to je podstata internetového stalkingu - legální získávání informací, které nejsou určeny vám.
+> 
+> *Karel Čížek: úvod povídky Stalker číslo 47*
 
 * * *
 
@@ -44,15 +44,15 @@ Plešatý chlápek v kožené bundě. Koho mi jen připomíná? Obličeje se tak
 
 Zrzka rovná hrníčky. Chlápek pije kávu. Magneťák hraje:
 
-I like beer, and I like cheese
-I like the smell of a westerly breeze
-But what I like more than all of these
-Is to be on horseback.
-
-Hey and away we go
-Through the grass, across the snow
-Big brown beastie, big brown face
-I'd rather be with you than flying through space.
+> I like beer, and I like cheese
+> I like the smell of a westerly breeze
+> But what I like more than all of these
+> Is to be on horseback.
+> 
+> Hey and away we go
+> Through the grass, across the snow
+> Big brown beastie, big brown face
+> I'd rather be with you than flying through space.
 
 "Poslyšte..." promluvil chlápek. "Nejste vy náhodou Majka Kleinová?" - "Jo, to jsem já...." usmála se.
 
@@ -116,8 +116,8 @@ Když odcházel, řekla "Počkejte". Otočil se za ní. Ona si vyhrnula si svetr
 
 * * *
 
-Slova dozněla, ale počítače dál běžely a zaznamenávaly informace o dalších stovkách cizích lidí.
-
-(závěr povídky Stalker číslo 47)
-
-Viz https://k47.cz/povidky/stalker-cislo-47.html 
+> Slova dozněla, ale počítače dál běžely a zaznamenávaly informace o dalších stovkách cizích lidí.
+>
+> (závěr povídky Stalker číslo 47)
+> 
+> Viz https://k47.cz/povidky/stalker-cislo-47.html 

@@ -68,8 +68,6 @@ pěknej dáreček“, odcedil Bludowský.
 
 ---
 
-<div class="rightbox"><img src="marketa.jpg" class="nahled-portret" alt="Markéta osaměla se spáleným cukrovím, vyhořelou troubou a kuchyní, která teď nejvíc ze všeho připomínala středověkou černou kuchyni. Do očí se jí pomalu draly slzy – takhle si Vánoce rozhodně nepředstavovala. Vyhořela, a to doslova. Zůstala v bytě sama s oxidem uhelnatým, zatímco její Jakub někde dělal společnost mrtvole."/></div>
-
 Toho večera měla Markéta návštěvu.
 Teda přesněji řečeno – slovo „návštěva“ bylo eufemismus pro „zásah
 protipožárního sboru“. Hasiči si sbalili své věci, nastartovali a vyjeli
@@ -80,8 +78,8 @@ takhle si Vánoce rozhodně nepředstavovala. Vyhořela, a to doslova.
 Zůstala v bytě sama s oxidem uhelnatým, zatímco její Jakub někde dělal
 společnost mrtvole.
 
-Zapípal mobil, přišla od něj SMS: „*Dnes vecer uz nedorazim. Mame toho
-plno. J.*“ A bylo po Vánocích.
+Zapípal mobil, přišla od něj SMS: „`Dnes vecer uz nedorazim. Mame toho
+plno. J.`“ A bylo po Vánocích.
 
 Markéta ještě zkoušela zahnat chmury televizí, ale na každém kanále
 bežela nějaká šťastná rodinka nebo alespoň pohádka nebo reklama pro
@@ -240,8 +238,7 @@ ve Ztracené existenci? Ne, to ne!
 Pomalu se jí začínaly mlžit oči slzami, když tu se ozvalo zamňoukání
 telefonu, přišla jí SMS.
 
-„*Mam te rad, Marketko. Jsi moje svetlo v tyhle tme. Jsi moje betlemska
-hvezda. Vanoce oslavime jindy. Jakub.*“
+	Mam te rad, Marketko. Jsi moje svetlo v tyhle tme. Jsi moje betlemska hvezda. Vanoce oslavime jindy. Jakub.
 
 Ukápla jí slza, ale už nebyla smutná.
 

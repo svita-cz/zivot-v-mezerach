@@ -30,4 +30,4 @@ Na patře krmí recepční Martina masožravou rostlinu jakýmsi blanokřídlým
 
 To je můj život v mezerách. V krabici s dopisy na stole skončil *milostný dopis anonymní*, psaný mou rukou. Vrátil se zpět od adresátky. Pohlédl jsem na něj, poznal svůj výtvor a zařadil ho do archivu pod kategorii *829g - upomínka na nezaplacené připojení k telekomunikační síti*.
 
-Vyšlo v příloze časopisu Rozvědčík nazvané revolver.
+*Vyšlo v příloze časopisu Rozvědčík nazvané revolver.*

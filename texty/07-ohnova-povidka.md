@@ -42,4 +42,4 @@ Ten večer na Větrné hůrce nehořelo, nebyl k tomu důvod. Akorát jeden muž
 
 FINIS
 
-Věnováno Viktoru Farkasovi. 
+*Věnováno Viktoru Farkasovi.* 

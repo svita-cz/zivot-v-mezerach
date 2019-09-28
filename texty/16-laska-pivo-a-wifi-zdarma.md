@@ -1,7 +1,5 @@
 ## Láska, pivo a wifi zdarma
 
----
-
 ### Předzpěv: Rakovník − Kladno
 
 Na malejch městech lidi víc chlastaj, protože tam není co dělat. Ve velkejch městech to máš jiný. Kina, divadla, koncerty, galerie, vždycky najdeš aspoň nějaký kulturní vyžití. Tady u nás na maloměstě? Jedinej rockovej klub před rokem zkrachoval. Tady není co dělat. A proto tady lidi tak chlastaj a chlastaj, řekla jsem.
@@ -378,7 +376,7 @@ No, jak tak na něj koukám, tak je toho zřejmě potřeba víc...
 
 ---
 
-Věnováno Hance S., bez sázky s ní by povídka nikdy nevznikla.
+*Věnováno Hance S., bez sázky s ní by povídka nikdy nevznikla.*
 
-Děkuji též Singularis/ovi za obdivuhodnou práci při sepsání povídky ze zvukového záznamu do počítače.
+*Děkuji též Singularis/ovi za obdivuhodnou práci při sepsání povídky ze zvukového záznamu do počítače.*
 

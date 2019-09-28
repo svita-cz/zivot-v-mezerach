@@ -2,13 +2,13 @@
 
 Na Hlubočici padnul sníh. Byla tma a silný vítr hnal sníh z polí.
 
-Ó lokomotivo jenž osvobozuješ. Již slyším kovovou píseň kolejí.  
-Ó lokomotivo mocná, tvá světla jak oči šelmy září tmou.  
-Ó lokomotivo silná, již slyším známý takt pražců a vrnění dieselova motoru.  
-Ó lokomotivo krásná, již vidím tě prorážet sněhovou závěj.  
-Ó lokomotivo čistá, tvá píšťala zní jak andělské troubení.  
-Ó lokomotivo zrádná, tvé brzdy mne již nemohou zastavit.  
-Ó lokomotivo milosrdná, ani to moc nebolelo...  
+	Ó lokomotivo jenž osvobozuješ. Již slyším kovovou píseň kolejí.  
+	Ó lokomotivo mocná, tvá světla jak oči šelmy září tmou.  
+	Ó lokomotivo silná, již slyším známý takt pražců a vrnění dieselova motoru.  
+	Ó lokomotivo krásná, již vidím tě prorážet sněhovou závěj.  
+	Ó lokomotivo čistá, tvá píšťala zní jak andělské troubení.  
+	Ó lokomotivo zrádná, tvé brzdy mne již nemohou zastavit.  
+	Ó lokomotivo milosrdná, ani to moc nebolelo...  
 
 A pak již jen desítky párů kol a Cháron v železniční uniformě.
 
