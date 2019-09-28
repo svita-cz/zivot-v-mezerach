@@ -16,9 +16,9 @@ Strojvedoucí zavřel regulátor, vysílačkou vyděšeně uvedl v chod mašiner
 
 *Tichá noc, svatá noc.*
 
-Na druhém konci města to vypadalo předpisově idilicky. Světelné řetězy, vánoční stromečky,vůně skořice a cukroví a poctivý slaměný betlém. A vzduchem se nesla Tichá noc. U stánku balící služby stáli dva muži. Byli to detektivové z kriminálky. I oni hledali v předvánočním schonu trochu klidu a míru. Právě jim skončila služba.
+Na druhém konci města to vypadalo předpisově idylicky. Světelné řetězy, vánoční stromečky,vůně skořice a cukroví a poctivý slaměný betlém. A vzduchem se nesla Tichá noc. U stánku balící služby stáli dva muži. Byli to detektivové z kriminálky. I oni hledali v předvánočním schonu trochu klidu a míru. Právě jim skončila služba.
 
-„Nemám rád Vánoce'' vzdychl Bludowský. „Proč to?“ podivil se Waldfrucht. „Osamělí jsou ještě osamělejší, chudí chudší, podvodníci vykutálenější a reklamy stále dotěrnější...“ řekl Bludowský a podíval se na Santu Klause v protější výloze a smutně dodal: „Z Vánoc se staly svátky konzumu...“ - „Třeba si to jen moc bereš“ - „Neberu, podívej se na statistiku sebevražd...“ odpověděl Bludowský pochmurně.
+„Nemám rád Vánoce'' vzdychl Bludowský. „Proč to?“ podivil se Waldfrucht. „Osamělí jsou ještě osamělejší, chudí chudší, podvodníci vykutálenější a reklamy stále dotěrnější...“ řekl Bludowský a podíval se na Santu Klause v protější výloze a smutně dodal: „Z Vánoc se staly svátky konzumu...“ - „Třeba si to jen moc bereš“ - „Neberu, podívej se na statistiku sebevražd...[^b1]“ odpověděl Bludowský pochmurně.
 
 *Dej Bůh štěstí tomu domu, my zpíváme víme komu...*
 
@@ -58,19 +58,19 @@ Výslech se ukázal jako zbytečný, svědek nic jiného nevěděl.
 
 *My tři králové, jdeme k vám, štěstí zdraví, vinšujem vám....*
 
-Magistrátní úřednice nebyla ráda, že ji na Štědrý den od pečení posledního cukroví vytáhnla kriminálka. Naštvaně hledala v počítači účtenky za nájem stánku na vánočních trzích. „Tady to je“ mračila se na Bludowského „Žaneta Kmínová, Stoupavá ulice 32, Klikohrad. Nájem za stánek číslo 5. Předmět prodeje: vánoční stromečky.“ Bludowský si adresu a jméno pečlivě zapsal a slušně poděkoval úřednici za ochotu. Nebyla z toho nadšená. Bludowský věděl, že ani kolegové z Klikohradu nebudou nadšeni.
+Magistrátní úřednice nebyla ráda, že ji na Štědrý den od pečení posledního cukroví vytáhla kriminálka. Naštvaně hledala v počítači účtenky za nájem stánku na vánočních trzích. „Tady to je“ mračila se na Bludowského „Žaneta Kmínová, Stoupavá ulice 32, Klikohrad. Nájem za stánek číslo 5. Předmět prodeje: vánoční stromečky.“ Bludowský si adresu a jméno pečlivě zapsal a slušně poděkoval úřednici za ochotu. Nebyla z toho nadšená. Bludowský věděl, že ani kolegové z Klikohradu nebudou nadšeni.
 
-A měl pravdu. Kolegové v Klikohradu nadšeni nebyli. Nakonec se zjistilo, že dopis na rozloučenou ležel v poštovní schránce u Klikohradského nádraží. Tamní pošta měla o svátcích zavřeno, tak ji nikdo nevybral. V dopise si tato žena, jak se zjistilo později vdova po vojákovi, stěžovala své nejlepší přítelkyni na samotu a deprese. Na světě nebyl nikdo, kdo by ji podržel. Jedniný, kdo by to byl mohl zvrátit, byl ten černý prodejce rachejtlí, ale neměl odvahu.
+A měl pravdu. Kolegové v Klikohradu nadšeni nebyli. Nakonec se zjistilo, že dopis na rozloučenou ležel v poštovní schránce u Klikohradského nádraží. Tamní pošta měla o svátcích zavřeno, tak ji nikdo nevybral. V dopise si tato žena, jak se zjistilo později vdova po vojákovi, stěžovala své nejlepší přítelkyni na samotu a deprese. Na světě nebyl nikdo, kdo by ji podržel. Jedinný, kdo by to byl mohl zvrátit, byl ten černý prodejce rachejtlí, ale neměl odvahu.
 
 Bludowský tohle všechno zatím nevěděl, ale stejně mu z toho bylo špatně.
 
 *Narodil se Kristus Pán...*
 
-Odpoledne měl Bludowský sraz na nádraží. Jeho bratr mu předával dárky: „To je od mámy, to je ode mě a Irenky. Je škoda, že si nás nemohl přijet navšívit.“ - „No jo, mám službu“ povzdechl si Bludowský a pokračoval: „Pozdravuj mámu a Irenu. Předej dárky a nekoukej se ve vlaku na ten svůj!“ - „Neboj, nejsme už přece malí.“ Oba se tomu zasmáli, jako se smáli svým vtipům, když byli malí. Pak nádražní rozhlas vyhlásil vlak a oba bratři se rozloučili. Bludowský potom zamíril do kanceláře, kde měl ještě nějaké papírování související s koncem roku.
+Odpoledne měl Bludowský sraz na nádraží. Jeho bratr mu předával dárky: „To je od mámy, to je ode mě a Irenky. Je škoda, že si nás nemohl přijet navštívit.“ - „No jo, mám službu“ povzdechl si Bludowský a pokračoval: „Pozdravuj mámu a Irenu. Předej dárky a nekoukej se ve vlaku na ten svůj!“ - „Neboj, nejsme už přece malí.“ Oba se tomu zasmáli, jako se smáli svým vtipům, když byli malí. Pak nádražní rozhlas vyhlásil vlak a oba bratři se rozloučili. Bludowský potom zamíril do kanceláře, kde měl ještě nějaké papírování související s koncem roku.
 
 *Štědrej večer nastal. Štědrej večer nastal, koledy přichystal...*
 
-Štědrej večer nastal a Bludowský seděl doma. Společnost mu dělala vrnící lednička, lahev vína a napolo ztlumená televize. Koukal se z okna dalekohledem, Na plakátovací ploše na zdi vozovny vylepil kdosi plakát s nápisem Merry crysis and happy new fear.
+Štědrej večer nastal a Bludowský seděl doma. Společnost mu dělala vrnící lednička, lahev vína a napolo ztlumená televize. Koukal se z okna dalekohledem, Na plakátovací ploše na zdi vozovny vylepil kdosi plakát s nápisem `Merry crysis and happy new fear`.
 
 To docela sedí. Jenom za dva poslední dny se setkal s jednou krádeží, jedním podvodem a sebevraždou.
 
@@ -80,7 +80,7 @@ Biskup v televizi popřál lidu Veselé Vánoce a začala pohádka. Bludowský v
 
 Bludowský vypnul televizi. Na pohádky neměl náladu.
 
-Všichni ti zloději, podvodníci, vrazi, mafiáni a korupčníci sedí v kruhu rodinném, akorát on je sám doma. To má za svou celoroční pilnou službu - ani si o Vánocích nemůže vybrat dovolenou, aby navštívil příbuzné. Byl sám.
+Všichni ti zloději, podvodníci, vrazi, mafiáni a korupčníci sedí v kruhu rodinném, akorát on je sám doma. To má za svou celoroční pilnou službu - ani o Vánocích si nemůže vybrat dovolenou, aby navštívil příbuzné. Byl sám.
 
 Pomalu přemýšlel, jestli takhle večer jezdí po trati nějaký milosrdný vlak, ale zazvonil zvonek. „Kdo to sakra takhle pozdě otravuje?“
 
@@ -90,7 +90,9 @@ Seděli, pili víno, povídali si. Svět přestal být černý. Pak zazvonil tel
 
 Pak si dále povídali. O Vánocích, rodině, o tom, co kdo dostal. Bety se rozplývala nad krásnou ručně broušenou salátovou mísou.
 
-„A víš že jsem docela rád, že v té dárkové balící službě byl ten podvodník“ podotkl Waldfrucht „jinak by teď ta mísa byla na padrť!“
+„A víš že jsem docela rád, že v té dárkové balící službě byl ten podvodník“ podotknul Waldfrucht „jinak by teď ta mísa byla na padrť!“
 
 „Všechno zlé je k něčemu dobré“ dodala Bety. Bludowský se usmál a smířil se světem. Nechal všechny zloděje a podvodníky, lichváře a politiky ať si v klidu užijí Vánoc. Však on jim to příští rok spočítá!!!
+
+[^b1]: V tom se ovšem detektiv mýlil. Nejhorší je to prý mezi únorem a květnen.
 
