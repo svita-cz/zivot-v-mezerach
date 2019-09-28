@@ -1,6 +1,6 @@
 ## Sokolí hnízdo
 
-*Věnováno těm, kteří přispěli ke vzniku této povídky, ať už přímo nebo nepřímo. Jmenovitě pak Romanu Novosádovi za popohánění k dopsání. Ostatní (čti ti, co jsem potkával na cestě do práce) se snad v povídce poznají sami.*
+*Věnováno těm, kteří přispěli ke vzniku této povídky, ať už přímo nebo nepřímo. Jmenovitě pak Romanu Novosádovi za popohánění k dopsání. Ostatní (čti ti, které jsem potkával na cestě do práce) se snad v povídce poznají sami.*
 
 Bylo zataženo a dusno. Zahřmělo. Nad městem se spustil poslední letní liják. Takový ten teplý, co člověku není zima, když zmokne.
 
@@ -9,6 +9,8 @@ Na vodě se dělaly kruhy a detektivům schovaným ve staré nádrži na vodu mo
 Prsty na kohoutcích a dusno. Výstřel. Ve starém přístavišti se strhla přestřelka. Taková ta pořádná, jako v americkém filmu.
 
 Vodní ptáci vyděšeně utíkali a detektivům schovaným ve staré nádrži na vodu šlo o život. Předání začalo.
+
+---
 
 Ještě ten večer stál Bludowský na balkóně a kouřil. Měl kancelář až v podkroví, s překrásným výhledem na celé město. Bludowského ten výhled obvykle uklidňoval, ale dneska měl chuť každého hříšníka dole poplivat, i kdyby jen odhazoval obaly od sušenek na zem.
 
@@ -28,11 +30,13 @@ Motorák s pisklavými zvuky stoupal do hor. Rozrážel úbočí kopců a zelen�
 
 Vlak přejel viadukt a zastavil ve stanici Mury. Bludowský vystoupil. Teď dolů pod viaduktem a nahoru okolo sokolovny. Prošel pod viaduktem. Po mostě zrovna projížděl vlak. Odbočil do Sokolské ulice a pak ji uviděl.
 
-Na ostrohu nad silnicí se tyčila místní sokolovna. Vypadala jako nějaký hrad. Tuto skutečnost ještě umocňovalo to, že před ní byl vykopán hluboký příkop, patrně budoucí kanalizace. V příkopu se jako nevolníci krčili kopáči, podivná to směs lidu. Bludowský vzhlédl.
+Na ostrohu nad silnicí se tyčila místní sokolovna. Vypadala jako nějaký hrad. Tuto skutečnost ještě umocňovalo to, že před ní byl vykopán hluboký příkop (patrně budoucí kanalizace), ve kterém se jako nevolníci krčili kopáči, podivná toť směs lidu.
 
-Sokolovna byla opravdu majestátní. Přístavby na přístavbách jí dodávaly zákoutí, která by člověk čekal spíše na vykopávkách starověkých měst. Kromě povinné hospody v ní nechyběl sál určený k pořádání mysliveckých plesů a sportovnímu vyžití místních obyvatel, místní loutkové divadlo, byt bratra předsedy, půda plná krámů pamatujících ještě Tyrše, ubytovací kapacity pro bratry a sestry z jiných žup a strašně smradlavý pánský záchod v hospodě.
+A sokolovna nad jejich hlavami byla opravdu majestátní. Přístavby na přístavbách jí dodávaly zákoutí, která by člověk čekal spíše na vykopávkách starověkých měst. Kromě povinné hospody v ní nechyběl sál určený k pořádání mysliveckých plesů a sportovnímu vyžití místních obyvatel, místní loutkové divadlo, byt bratra předsedy, půda plná krámů pamatujících ještě Tyrše, ubytovací kapacity pro bratry a sestry z jiných žup a strašně smradlavý pánský záchod v hospodě.
 
-Bludowský se rozhodl, že ji vyzkouší. Zaujalo ho už jméno té hospody - U Mozarta. Prošel tedy pod vývěsním štítem s lahví piva „Zlatuška“. Vevnitř to vypadalo jako po nějakém mejdanu. Na lustru visela čísi ponožka, barman zametal střepy a na stole spala jakási podivná existence.
+Bludowský se rozhodl, že tu hospodu vyzkouší. Zaujalo ho už její jméno - U Mozarta. Prošel tedy pod vývěsním štítem s lahví piva „Zlatuška“ a ocitl se uvnitř. 
+
+Vetvnitř to vypadalo jako po nějakém mejdanu. Na lustru visela čísi ponožka, barman zametal střepy a na stole spala jakási podivná existence.
 
 „Co se tu slavilo?“ zeptal se Bludowský zvědavě. Barman vzdychl: „Moje narozeniny“. Vyhodil střepy do koše a stoupl si za pult: „Věřil byste, že už je mi šedesát?“ Bludowský se nadechl, chtěl něco říct, ale barman ho předběhl: „Takový roky, celej život za sebou. A to ani nemám základní školu... Hm. A včera jsem se dozvěděl, že už jsem dědeček - tak na to se napijem - ne?“ - „Klidně,“ odpověděl Bludowský a barman mu nalil něco naprosto příšerného.
 
@@ -54,6 +58,7 @@ Všechny díly Zelenkových dobrodružství! Zobánek! A dokonce Kapitán Afrika
 
 Zbytek dne strávil Bludowský čtením o Obřím kamenném muži, starostech dětské hvězdy a použití zmrzliny v boji za práva chudých. A podle toho pak vypadaly i jeho sny.
 
+---
 
 Následující ráno stál Bludowský na louce nad chatou a vdechoval plnými doušky čerstvý ranní vzduch. Krabičku cigaret bohužel neměl. Dole v údolí se rozpouštěly chuchvalce mlhy. Období mlh začalo. Podzim se hlásil ke slovu.
 
@@ -61,11 +66,9 @@ Když takhle stojíte na louce nad údolím a koukáte se dolů, uvědomíte si,
 
 Přesto je tu však něco, co nás po procházce nutí přečíst si noviny a pozastavovat se nad křivdami spáchanými na místním obyvatelstvu.
 
-Bludowský přestal s filozofováním. Bylo na čase jít nakoupit nějaké zásoby.
+Bludowský přestal s filozofováním. Bylo na čase jít nakoupit nějaké zásoby. Ještě ale naposledy shlédl do údolí. Bylo v něm něco znepokojivého.
 
-Bludowský ještě naposledy shlédl do údolí. Bylo v něm něco znepokojivého.
-
-Ano, Sokolovna. Sokolovna, která z údolí vypadala jako nějaký hrad, tak přesně ta samá sokolovna vypadala z kopce jako papírový domeček na modelovém kolejišti. A před ní stálo něco, co tam obvykle nestává - dav, policie - a z údolí už si to šinula televizní dodávka.
+Ano, sokolovna! Ta sokolovna, která z údolí vypadala jako nějaký hrad, tak přesně ta samá sokolovna vypadala z kopce jako papírový domeček na modelovém kolejišti. A před ní stálo něco, co tam obvykle nestává - dav, policie - a z údolí už si to šinula televizní dodávka.
 
 Bludowský sešel níž k sokolovně. Tak tak se mu podařilo proplížit okolo davu. Na dřevěném můstku přes výkop mu uhýbala jakási slečna s červeným baretem na hlavě a fotoaparátem v ruce. Vešel do hospody.
 
@@ -89,17 +92,15 @@ Bludowskému se ta řeč zamlouvala. Bylo vidět, že ten chlápek ve větrovce 
 
 Chlápek ve větrovce se napil a začal: „To bylo takhle: Byl už konec války, byl už docela zmatek. Na zdejší nádraží dorazil vlak. Byli v něm vojáci a nějaký dobře hlídaný bedny.
 
-Von to teda nebyl žádnej transport, jen lokomotiva a dva nákladní vagóny, ale stejně...
-
 Vojáci chtěli jet dál do vnitrozemí, ale zrovna v ten týden voda strhla předmostí viaduktu. Když pak zjistili, že opravdu neprojedou, půjčili si pro zájmy říše tři náklaďáky z přádelny, naložili ty bedny a odvezli je někam směrem k sokolovně. Když se pak večer vrátili, náklaďáky byly prázdné. Vojáci potom odjeli vlakem zpátky, odkud přijeli.
 
-Přišlo osvobození. Všichni měli najednou jiné starosti a na tu událost s bednami se zapomělo.
+Přišlo osvobození. Všichni měli najednou jiné starosti a na tu událost s bednami se zapomnělo.
 
-Až pak, deset let po válce, se tady objevil takovej mladej němec, syn jednoho z těch vojáků. Divně se všech vyptával, a pak k dovršení všeho začal u sokolovny něco kopat.
+Až pak, deset let po válce, se tady objevil takovej mladej Němec, syn jednoho z těch vojáků. Divně se všech vyptával, a pak k dovršení všeho začal u sokolovny něco kopat.
 
-Když ho pak policajti zatkli a vyslýchali, přiznal, že hledal poklad. Prý mu otec před smrtí řekl: ‚Ty bedny jsme zakopali u sokolího hnízda‘ - a umřel. A to je celý příběh.“
+Když ho pak policajti zatkli a vyslýchali, přiznal, že hledal poklad. Prý mu otec před smrtí řekl: ‚Ty bedny jsme zakopali u *sokolího hnízda*‘ - a umřel. A to je celý příběh.“
 
-„To je pěkně uhozený,“ namítl Bludowský. - „Jo, to si ti policajti taky mysleli. Pak se však ukázalo, že ten němec, jistej Budenmayer, je skutečně synem jednoho z těch vojáků, co se tu na konci války pohybovali. Bohužel však německá strana neuvedla, co tu dělali.
+„To je pěkně uhozený,“ namítl Bludowský. - „Jo, to si ti policajti taky mysleli. Pak se však ukázalo, že ten Němec, jistej Budenmayer, je skutečně synem jednoho z těch vojáků, co se tu na konci války pohybovali. Bohužel však německá strana neuvedla, co tu dělali.
 
 Definitivně se to potvrdilo poté, co případ převzali tajní a uvalili na něj mlčení...“ řekl chlápek a napil se.
 
@@ -107,7 +108,9 @@ Definitivně se to potvrdilo poté, co případ převzali tajní a uvalili na n�
 
 „Vy asi vůbec netušíte, s kým mluvíte,“ řekl tiše detektiv.
 
-„Nemám ten poklad rád“ rozčiloval se o kus dál uplně jiný detektiv. Byl to kapitán Karotka, šéf místní policie.
+---
+
+„Nemám ten poklad rád“ rozčiloval se o kus dál úplně jiný detektiv. Byl to kapitán Karotka, šéf místní policie.
 
 „Vážně, nemám ho rád. Sou s nim jen problémy. Děti lezou, kam nemaj. Protože si myslí, že tam je. Taháme je pak kvůli tomu z různejch děr a starejch baráků.
 
@@ -115,15 +118,17 @@ Dospělí lezou kam nemaj. Taky všude vidí poklad. A aby toho nebylo málo, je
 
 Slečna s červeným baretem a foťákem se zašklebila a její kolegyně zastavila diktafon. „Děkujeme za rozhovor.“
 
+---
+
 Slunce mezitím vystoupalo na nejvyšší bod své dráhy. A společně s ním stoupal i Bludowský. S Bludowským stoupal i ten chlápek ve větrovce, který se mezitím představil jako Jiří König.
 
 Stáli tam u jakési vodárny zahrabané v zemi. Z vodárny zněl takový divný zvuk, znělo to jako vážná hudba zahraná na několik kilometrů vodovodního potrubí. Nebo jste snad podobný zvuk ještě neslyšeli?
 
-„Čerpaj,“ řekl König. Bludowský se rozhlídl a prohlížel si jednu z těch cedulek, které v ochranném pásmu vodního zdroje zakazují snad uplně cokoliv.
+„Čerpaj,“ řekl König. Bludowský se rozhlídl a prohlížel si jednu z těch cedulek, které v ochranném pásmu vodního zdroje zakazují snad úplně cokoliv.
 
 „A proč si myslíte, že by měl být tady?“ zeptal se Bludowský. „Já si nemyslím, že tady je.“ řekl König, „já si jenom myslím, že tu byl. Kdyby tady byl déle, všimli by si ho vodohospodáři. Nepředpokládám, že kromě cen vody jedou ještě v nějakém spiknutí.“
 
-König se kamsi zadíval, otočil se zpět na Bludowského a začal opět vyprávět: „Víte. Na konci války se tu opevnili tři německý vojáci. Není to nijak dobré místo na skrývání, oni ho přesto do úplného sebezničení hájili. Podle hesla Mein Ehre heißt Treue[^sh2].
+König se kamsi zadíval, otočil se zpět na Bludowského a začal opět vyprávět: „Víte. Na konci války se tu opevnili tři německý vojáci. Není to nijak dobré místo na skrývání, oni ho přesto do úplného sebezničení hájili.
 
 Vystříleli je jako králíky. Ani se jich nestačili zeptat, proč to tak usilovně hájili.
 
@@ -155,7 +160,7 @@ Jsou určeny k tomu, aby svým chátráním říkaly: „Oprav mě! Oprav mě a 
 
 Logickým důsledkem pak je, že se u každého pomníčku dříve či později objeví někdo, kdo ho jako stařenka na vesnickém hřbitově omete, položí nové květiny a zapálí svíčku.
 
-Starší němec obřadně vytáhl zapalovač a podal ho svému druhovi v kožené bundě. Ten obřadně zapálil svíčku.
+Starší Němec obřadně vytáhl zapalovač a podal ho svému druhovi v kožené bundě. Ten obřadně zapálil svíčku.
 
 Tak tam stáli a mlčeli čtyři muži. Z vodárny zněla teskná hudba. Budenmayer by měl radost.
 
@@ -211,7 +216,9 @@ Teda ne jejich nepřátelé, spíš jejich potomci.“ Pak odešel do sousedníh
 
 „Od války se nezměnilo překvapivě hodně věcí,“ povzdechl si tesař.
 
-Potom se Bludowský rozloučil se slovy „nebudu už zdržovat“[^sh3] a vydal se na cestu. Proti němu jel s kopce traktor Samizdat. Podle takovýchhle „u strejdy v garáži na koleně“ vyrobených traktorů se venkov pozná spolehlivě. Stoupal dál. Po náspu železniční tratě se zřejmě plazil nějaký stroj. Hluboko vyryté stopy naznačovaly, že se někdo, kdo nebral ohled na překážky, pokoušel dostat přes násep. Bludowský je zkusil. Vedly přímo nahoru na násep, a pak přímo dolů. Někdo spěchal dokonce tolik, že přestříhal drátovod!
+Potom se Bludowský rozloučil se slovy „nebudu už zdržovat“[^sh3] a vydal se na cestu. Proti němu jel z kopce traktor Samizdat. Podle takovýchhle „u strejdy v garáži na koleně“ vyrobených traktorů se venkov pozná spolehlivě. 
+
+Bludowský šel dál blátivých po stopách traktoru až došel k náspu železniční tratě. Tam se stopy najednou stáčely na násep bez ohledu na cokoliv. Někdo v traktoru se patrně pokoušel dostat přes násep. A ten někdo spěchal dokonce natolik, že přestříhal drátovod!
 
 Možná by teď bylo dobré pro neznalé vysvětlit, co to takový drátovod je. Drátovody sloužily železničářům ke stahování závor a ovládání návěstidel. V podstatě se jednalo o dlouhé dráty natažené z hradla, kde byl železničář, k návěstidlu, kde už díky tomu být nemusel. Tyhle dráty vedly po takových malých sloupcích podél trati. A na některých lokálkách je můžete vidět dodnes.
 
@@ -225,13 +232,15 @@ Na světě není moc věcí nápadnějších než červený baret. I když stoj�
 
 Jenže koukat po holkách nepatří mezi činnosti, které se doporučují lidem stojícím v kolejišti, a tak se Bludowský zas tak nedivil, když ho málem přejel vlak.
 
+---
+
 Mezitím se dole pod údolím odehrávalo drama. Byla tam tma, ze stropu všude a pořád kapala voda, takový nesnesitelný zvuk. Občas se ozval zvuk něčeho jako netopýr, to na klidu moc nepřidávalo. A pak se v dálce mihlo světýlko naděje. Spíš tři. Jedno to světýlko si to zamířilo tam, kde bylo potřeba, se slovy: „Kluci jedni pitomí, vy jste nám ale dali...“
 
 A o chvíli později vyváděli policajti ze stok dva malé kluky, kteří tam šli hledat poklad.
 
 Bludowský už tou dobou seděl v policejním autě. Seděl před nádražím v autě a ten policajt, co ho preventivně zatknul, se někde zdržel. A jak znal Bludowský policajty, tipoval by to na automat s kafem v čekárně. Najednou se odkudsi vynořila ta slečna v červeném baretu. Usmála se svýma hnědýma očima, vzala foťák a vyblejskla detektiva. Pak se zjevil ten policajt s kelímkem v ruce. Vedle něj šla nějaká mladá žena, Bludowský ji odněkud znal.
 
-A pak mu to došlo. Vždyť je to mladá Dobrovská! (Pro ty, kdo ji neznáte: přečtěte si Hry s ohněm.) Slečna s červeným baretem se přidala k Dobrovské a obě zmizely v nádraží. Policajt nastoupil a vyrazili.
+A pak mu to došlo. Vždyť je to mladá Dobrovská![^sh2] Slečna s červeným baretem se přidala k Dobrovské a obě zmizely v nádraží. Policajt nastoupil a vyrazili.
 
 „Á, tak vy jste můj kolega!“ smál se pak pobaveně místní policejní kapitán Karotka poté, co ho zlegitimoval. „Jste tu služebně?“ - „Ne, na dovolený.“ - „Tak to odbydem rychle - co jste dělal v tom kolejišti?“ - „Šel jsem na nádraží. Všiml jsem si, že někdo přestříhal drátovod, tak jsem to chtěl jít ohlásit na nádraží, aby se nic nestalo.“ Karotka byl shodou okolností železniční modelář, takže věděl, co to takový drátovod je: „Člověče nešťastná, vždyť ten už dávno odpojili, kdybyste došel až na konec, všiml byste si toho!“ Bludowský pokrčil rameny.
 
@@ -257,7 +266,7 @@ Bludowský byl v pasti. Nejradši by tam u zábradlí zůstal celý den. Ty oči
 
 Pak Dobrovské někdo zavolal: že prý hoří někde poblíž uhelný sklad, tak ať ho jedou vyfotit. A odjely.
 
-Bludowský se vydal k chatě. Vrtulník se vydal tím samým směrem a předletěl ho. Přistál kousek od chaty, vystoupil z něj nějaký muž a vrtulník odletěl. Bludowský toho muže poznal, byl to Jan Leger[4], otec Waldfruchtovy přítelkyně a majitel té chaty, kde teď detektiv bydlel.
+Bludowský se vydal k chatě. Vrtulník se vydal tím samým směrem a předletěl ho. Přistál kousek od chaty, vystoupil z něj nějaký muž a vrtulník odletěl. Bludowský toho muže poznal, byl to Jan Leger[^sh4], otec Waldfruchtovy přítelkyně a majitel té chaty, kde teď detektiv bydlel.
 
 Pan Leger byl jedním z těch opravdu důležitých lídí. Měl nějakou vysokou pozici na jakémsi ministerstvu. Svou práci uměl opravdu dobře, vlády se střídaly - a on zůstával, protože ho všechny potřebovaly k tomu, aby udržely stát v chodu. Tato pečlivost a nenahraditelnost byla, jak se zdá, u Legerů v rodině dědičná.
 
@@ -285,13 +294,13 @@ A pak mi to došlo: Tahle chata už vypadá šedesát let pořád stejně! (Blud
 
 Do sklepa se nesmí chodit! Bydlíte tu Vy! A ty tři náklaďáky, co ten poklad přivezly, okolo chaty určitě musely projet!
 
-Ten černý vrtulník, to je něco tak nápadného!“ - (Leger trošičku zalitoval, že tak dal na svou oblíbenou knihu Ovlivňování davu pomocí nízkých přeletů.)
+Ten černý vrtulník, to je něco tak nápadného!“
 
-Lehce pobledlý vysoký úředník ministerstva zahraničí jménem Leger se nadechl: „To, co jste mi právě řekl, je od této chvíle státní tajemství. Doufám, že jako státní zaměstnanec víte, co to znamená?“
+Lehce pobledlý vysoký úředník ministerstva zahraničí se jménem Leger se nadechl: „To, co jste mi právě řekl, je od této chvíle státní tajemství. Doufám, že jako státní zaměstnanec víte, co to znamená?“
 
 „Jo, vím,“ přikývl detektiv. - „A teď by asi bylo lepší, kdybyste odjel už dnes“ řekl Leger striktně. - „Ano, jistě,“ řekl detektiv trochu smutně.
 
-Podíval se na chvíli na zem, a pak pozdvihl hlavu a podíval se na Legera, který kontroloval zámek od sklepa: „Akorát jedna věc mi trochu vrtá hlavou - proč se to tu jmenuje ‚Sokolí hnízdo‘ ?“ Leger se chvíli rozmýšlel, zda právě může mluvit, nebo ne: „Můžu vám to vlastně říct, když to nejdůležitější už víte sám: Falknnest totiž není místo, ale jméno. Jméno jednoho muže, co tu za války bydlel. Všichni ho tehdá znali jen křestním - bydlel tu pro ně ‚Jörg‘. Prosté, že?“ - „Hm. Jako všechno,“ řekl zklamaně detektiv a odešel si balit věci.
+Podíval se na chvíli na zem, a pak pozdvihl hlavu a podíval se na Legera, který kontroloval zámek od sklepa: „Akorát jedna věc mi trochu vrtá hlavou - proč se to tu jmenuje ‚Sokolí hnízdo‘ ?“ Leger se chvíli rozmýšlel, zda právě může mluvit, nebo ne: „Můžu vám to vlastně říct, když to nejdůležitější už víte sám: Falknnest totiž není místo, ale jméno. Jméno jednoho muže, co tu za války bydlel. Všichni ho tehdá znali jen křestním - bydlel tu pro ně *Jörg*. Prosté, že?“ - „Hm. Jako všechno,“ řekl zklamaně detektiv a odešel si balit věci.
 
 Po chvíli se však vrátil a s nesmělostí malého dítěte se zeptal: „A mohl byste mi aspoň kousek toho pokladu ukázat? Vždyť já ho vlastně našel!“
 
@@ -309,11 +318,11 @@ Na dveřích od sklepa byl obrovský zámek. „Tohle už vůbec nikomu neříke
 
 Do nosu ho okamžitě udeřil zápach vlhkého zdiva, mechu, starého papíru a myší, které jsou v Hlubočici tak šikovné, že se dostanou i do trezoru Národní banky. Leger vstoupil, zavřel za sebou a rozsvítil. Z žárovky vyletěla stará můra a začala kroužit. Patrně byla právě probuzena z hibernace.
 
-Detektiv se rozhlédl: Místnost to byla celkem tmavá. Uprastřed stály dřevěné bedny, pokryté starou plachtou. Okolo byla sem tam plechovka nějakého toho jedu, aby se myši a moli drželi zkrátka. A u jediného okna byla velmi zdařilá replika nepořádku, budící dojem, že nic jiného ve sklepě není.
+Detektiv se rozhlédl: Místnost to byla celkem tmavá. Uprostřed stály dřevěné bedny, pokryté starou plachtou. Okolo byla sem tam plechovka nějakého toho jedu, aby se myši a moli drželi zkrátka. A u jediného okna byla velmi zdařilá replika nepořádku, budící dojem, že nic jiného ve sklepě není.
 
 Leger přistoupil k nejbližší bedně. Demonstrativně odklopil víko: „Jak jste ostatně říkal sám, poklad je tvořen převážně různými dokumenty.“ V bedně byl skutečně nějaký starý papír s německou orlicí. Na něm ležel nějaký menší rukou vyplněný formulář. Leger ho vzal a podal Bludowskému: „Tohle si pořádně prohlídněte. Skvělá ukázka německé pečlivosti.“
 
-Bludowský si formulář prohlédl. Rozuměl sice jen nápisu LIEFERSCHEIN nahoře a podpisům dole, ale bylo mu hned jasné, co to je: „Vždyť to je dodací list k tomu pokladu?!“ divil se.
+Bludowský si formulář prohlédl. Rozuměl sice jen nápisu `LIEFERSCHEIN` nahoře a podpisům dole, ale bylo mu hned jasné, co to je: „Vždyť to je dodací list k tomu pokladu?!“ divil se.
 
 „Ano, nejvýmluvnější ukázka německé pečlivosti,“ přitakal Leger. „Teď jistě chápete, že je to všechno, co vám můžu ukázat.“ - Detektiv přikývl. Obraz se uzavřel.
 
@@ -337,9 +346,11 @@ A asi o padesát kilometrů východněji si tesař jménem König otvíral obál
 
 FINIS
    
-[^sh1]: Myšlenky převzaty ze stránek richard-1.com - autor major H.
+[^sh1]: Myšlenka převzata ze stránek richard-1.com - jejím autorem je jakýsi major H.
 
-[^sh2]: Mojí ctí je věrnost. Mimochodem motto SS, tak ho neříkejte v Rakousku a Německu, je tam zakázané.
+[^sh2]: viz Hry s ohněm
 
 [^sh3]: Kōnig, ačkoliv dobře věděl, že ho zdržuje, mu na to říkal: „ale ne, vůbec nezdržujete“
+
+[^sh4]: čte se to *Ležér*
 
