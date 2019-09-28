@@ -24,7 +24,7 @@ Třetí stopa byla složitější. Zvonek od kola, potichu cikády ze všech str
 
 Vrátila se k první stopě a došlo jí to: To nebyla střelba z laserové zbraně, ale blížící se trolejbus. Rozvibroval síť trolejí a ty udělaly tento podivný zvuk. A ty falešné housle - to musela být nějaká základní umělecká škola někde vedle trolejbusové tratě. Jasně, Náměstí Pařížské komuny, vždyť tam jako dítě chodila…
 
-Povzbuzena úspěchem pustila se do stopty čtvrté: Vzdálené rádio a sekačka. To mohlo být kdekoliv. Ale pak se ozvala charakteristická zvonkohra. Ano - Ruský kostelík - ten stojí na kraji zahrádkové kolonie.
+Povzbuzena úspěchem pustila se do stopy čtvrté: Vzdálené rádio a sekačka. To mohlo být kdekoliv. Ale pak se ozvala charakteristická zvonkohra. Ano - Ruský kostelík - ten stojí na kraji zahrádkové kolonie.
 
 Stopa pátá: „S hořčicí nebo s kečupem?“ zeptala se nějaká žena. Pak hovory nějakých lidí, ale ten, kdo nesl diktafon, se jim vzdaloval. Zaječení nějaké dívky nalevo: „Á, ty blbečku!“ Pubertální smích. Děti. Šplouchání a cákání vody.
 
@@ -34,7 +34,7 @@ Pustila šestou stopu. Znělo to jako nějaký stroj. Rytmicky pracoval. Pak oko
 
 Šla tedy do koupelny se napít. Rozsvítila. Chvíli se mlčky koukala na svou tvář v zrcadle. Nad obočím měla fialový pupínek. Opláchla si obličej a vypláchla si pusu. Voda měla tu správnou chlórovou pachuť, jak se na Větrnou hůrku slušelo a patřilo. Zamyslela se: Už odhalila pět stop, akorát neví co s nimi. Vrátila se tedy do ložnice, ještě jí čekaly dvě stopy.
 
-Nasadila si sluchátka a pustila sedmou stopu. Klimatizace. Lidé. Nalevo nějaký hiphop, ale jen na skok. Zase lidé, nějaký smích seshora. Indická hudba napravo. Dítě. Podpatky. Další lidé. Jakési pípání po pravici, další lidé. Pustila si to ještě jednou. Místo kde je hodně lidí a na konci, zřejmě pípání pokladen. Nějaký supermarket, nebo spíš - ten hiphop a indická hudba tomu nasvědčovaly - obchodní dům. Ano, nositel diktafonu prošel nejprve okolo obchodu s oblečením (to ten hiphop) a potom, potom třeba kolem indické restaurace, aby nakonec zakončil svou cestu u pokladen supermarketu. Markéta se zamyslela: Kde mají indickou restauraci a zárověň supermarket? Nákupní centrum Hvězda, to by mohlo být ono!
+Nasadila si sluchátka a pustila sedmou stopu. Klimatizace. Lidé. Nalevo nějaký hiphop, ale jen na skok. Zase lidé, nějaký smích seshora. Indická hudba napravo. Dítě. Podpatky. Další lidé. Jakési pípání po pravici, další lidé. Pustila si to ještě jednou. Místo kde je hodně lidí a na konci, zřejmě pípání pokladen. Nějaký supermarket, nebo spíš - ten hiphop a indická hudba tomu nasvědčovaly - obchodní dům. Ano, nositel diktafonu prošel nejprve okolo obchodu s oblečením (to ten hiphop) a potom, potom třeba kolem indické restaurace, aby nakonec zakončil svou cestu u pokladen supermarketu. Markéta se zamyslela: Kde mají indickou restauraci a zároveň supermarket? Nákupní centrum Hvězda, to by mohlo být ono!
 
 A poslední, stopa osmá: Střelba. Nějaké malé dítě: „Mami.“ Znovu střelba. Markéta si to pustila znova, ale žádná indície místa v tom nebyla.
 
@@ -44,7 +44,7 @@ Podívala se na mapu. Místa nahrávek byla, jak se zdálo, rozmístěna v podst
 
 Markéta sundala sluchátka a šla do koupelny. Pila. Někde nahoře se spustilo čerpadlo. A v tom jí to docvaklo - ta osmá stopa nemá prostorový zvuk.
 
-Docupitala do ložnice. Pustila osmou stopu. Ano, žádný prostový zvuk. Nebylo slyšet, kde se střílí a kde se pláče. Podívala se na displej diktafonu, svítil tam nápis MONO. U všech ostatních stop byl zvuk prostorový a nápis STEREO. Takže ta osmá stopa asi ani nebyla nahrána tímto diktafonem, asi je nakonec z nějakého filmu.
+Docupitala do ložnice. Pustila osmou stopu. Ano, žádný prostorový zvuk. Nebylo slyšet, kde se střílí a kde se pláče. Podívala se na displej diktafonu, svítil tam nápis MONO. U všech ostatních stop byl zvuk prostorový a nápis STEREO. Takže ta osmá stopa asi ani nebyla nahrána tímto diktafonem, asi je nakonec z nějakého filmu.
 
 Rozlouskla to. Vypnula diktafon, sundala si sluchátka a odpojila je. Na malý papírek napsala „Na něco jsem přišla.“, položila to na diktafon a šla ho vrátit do kuchyně. Pak si šla lehnout a znavená posloucháním usnula spánkem spravedlivých.
 

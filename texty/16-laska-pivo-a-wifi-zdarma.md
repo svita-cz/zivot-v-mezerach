@@ -47,7 +47,7 @@ v nemocnici.“
 
 „Cože?“
 
-„Ale… nic vážnýho, jenom vymknutej kotník. Ale má zůstat doma vklidu.“
+„Ale… nic vážnýho, jenom vymknutej kotník. Ale má zůstat doma v klidu.“
 
 „Ale… ale… ale vždyť já mám dneska dovolenou!
 Proč to nevezme třeba Monika?“
@@ -326,7 +326,7 @@ Pak jsem nejistě začala: „Víš, Haničko, já bych byla ráda, že jsi pro 
 
 Položila jsem tedy na stůl tři Stely a zbaběle jsem prchla. Vždycky jsem tak trochu zavírala oči před realitou, i když se za mnou z kavárny ozývalo: „Hej! Kam běžíš?“
 
-Uprostřed náměsťí se mezitím tančilo. Tedy, starší dealer tam cosi pouštěl z telefonu, jakýsi dřevní hip-hop, a ten mladší dealer u toho pokyvoval hlavou a tančil. A předváděl takové taneční kreace, za které by se nemusel stydět ani Michael Jackson na vrcholu své kariéry. Skladba pomalu skončila a náš tanečník předvedl jakýsi akrobatický prvek, který málem zakončil elegantním zarytím nosu do chodníku.
+Uprostřed náměstí se mezitím tančilo. Tedy, starší dealer tam cosi pouštěl z telefonu, jakýsi dřevní hip-hop, a ten mladší dealer u toho pokyvoval hlavou a tančil. A předváděl takové taneční kreace, za které by se nemusel stydět ani Michael Jackson na vrcholu své kariéry. Skladba pomalu skončila a náš tanečník předvedl jakýsi akrobatický prvek, který málem zakončil elegantním zarytím nosu do chodníku.
 
 „Fascinující! Bravo! Bravo! Bravo, pánové,“ zatleskala jsem.
 
@@ -357,7 +357,7 @@ ho předběhla: „Neznáš někoho, kdo má montážní plošinu?“
 
 „Montážní plošinu? Na co ji proboha potřebuješ?“ zeptal se nejistě.
 
-Ale když jsem mu to vysvětlila, tak o deset minut později už telefonoval kamsi pryč: „Hele, Franto, víš, jak jsi říkal, že jsi nám zavázanej, jo? ... Víš, jo?  ... No, tak já bych pro tebe měl takovou jako prácičku, no.  ... Ale prosímtě,
+Ale když jsem mu to vysvětlila, tak o deset minut později už telefonoval kamsi pryč: „Hele, Franto, víš, jak jsi říkal, že jsi nám zavázanej, jo? ... Víš, jo?  ... No, tak já bych pro tebe měl takovou jako prácičku, no.  ... Ale prosím tě,
 vem si na to plošinu, jo?“
 
 A o chvíli později už stálo auto Technických služeb města Zloduška u cukrovaru před velkým ořešákem. Na montážní plošině stál mladší dealer a u ovládacích pák plošiny stál onen Franta. Nevím, co mu ti dva dodávali, ale evidentně to byl jejich stálý zákazník a evidentně kupoval úplně všechno, co se dá šňupat.

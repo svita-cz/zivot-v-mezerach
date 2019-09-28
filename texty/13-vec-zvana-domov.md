@@ -20,7 +20,7 @@ Viktor se probudil…
 
 * * *
 
-Viktora Wechsela jsme v našem příběhu opustili, když přišel o práci a o křeslo. To křeslo - rodinná památka na tetičku Žofii - se mu nakonec vrátilo. Práce se mu nevrátila, ale ani jí nehledal. Viktor si žil svůj poklidný život v zahradním domku po tetičce Žofii. O okolní svět se moc nestaral a okolní svět se moc nestaral o něj. Zima se sice blížila, ale on se jí nebál. Zalevno někde sehnal montážní pěnu a plánoval si, jak si domeček zateplí. Zkrátka svého druhu idylka.
+Viktora Wechsela jsme v našem příběhu opustili, když přišel o práci a o křeslo. To křeslo - rodinná památka na tetičku Žofii - se mu nakonec vrátilo. Práce se mu nevrátila, ale ani jí nehledal. Viktor si žil svůj poklidný život v zahradním domku po tetičce Žofii. O okolní svět se moc nestaral a okolní svět se moc nestaral o něj. Zima se sice blížila, ale on se jí nebál. Za levno někde sehnal montážní pěnu a plánoval si, jak si domeček zateplí. Zkrátka svého druhu idylka.
 
 Akorát teď tu idylku narušovalo takové slabé volání o pomoc, které naznačovalo, že by se třeba mohl zvednout z křesla a jít se jako podívat, co se jako děje.
 

@@ -51,7 +51,7 @@ Bylo vidět, že zbledla: „A co bys… s takovejma fotkama dělal?“ - „To 
 
 * * *
 
-Kousek na jih od Prahy leží malebná vesnice Hradišťko. A v ní, nadohled od Štěchovické přehrady, mimo letecké koridory a vysoko nad záplavovou oblastí, jsou budovy Národního filmového archivu. V těchto budovách je v kontrolované teplotě a vlhkosti uchováváno české kulturní dědictví. A někde tam, mezi doprovodnými materiály k filmu Valerie a týden divů je jedno nenápadné DVD. Je na něm jedinná složka a v ní šest fotografií. Vylovil jsem je z virtuálního koše, vypálil a propašoval do archivu. Na památku.
+Kousek na jih od Prahy leží malebná vesnice Hradišťko. A v ní, na dohled od Štěchovické přehrady, mimo letecké koridory a vysoko nad záplavovou oblastí, jsou budovy Národního filmového archivu. V těchto budovách je v kontrolované teplotě a vlhkosti uchováváno české kulturní dědictví. A někde tam, mezi doprovodnými materiály k filmu Valerie a týden divů je jedno nenápadné DVD. Je na něm jediná složka a v ní šest fotografií. Vylovil jsem je z virtuálního koše, vypálil a propašoval do archivu. Na památku.
 
 Oko je potvora a má hlad. A fotka se snadno okouká, ne tak živá Alice.
 

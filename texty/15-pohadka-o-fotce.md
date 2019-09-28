@@ -44,15 +44,15 @@ Plešatý chlápek v kožené bundě. Koho mi jen připomíná? Obličeje se tak
 
 Zrzka rovná hrníčky. Chlápek pije kávu. Magneťák hraje:
 
-> I like beer, and I like cheese
-> I like the smell of a westerly breeze
-> But what I like more than all of these
-> Is to be on horseback.
-> 
-> Hey and away we go
-> Through the grass, across the snow
-> Big brown beastie, big brown face
-> I'd rather be with you than flying through space.
+	I like beer, and I like cheese
+	I like the smell of a westerly breeze
+	But what I like more than all of these
+	Is to be on horseback.
+	
+	Hey and away we go
+	Through the grass, across the snow
+	Big brown beastie, big brown face
+	I'd rather be with you than flying through space.
 
 "Poslyšte..." promluvil chlápek. "Nejste vy náhodou Majka Kleinová?" - "Jo, to jsem já...." usmála se.
 

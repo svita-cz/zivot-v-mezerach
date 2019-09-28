@@ -68,7 +68,7 @@ A zatímco autobus míjel továrnu na výrobu klikových hřídelí, rozhodl jse
 
 Líbíš se mi, líbíš se mi, líbíš se mi, zněl znovu kolovrátek v mé hlavě.
 
-V tu chvílí zdvihla oči, nejprve se tvářila udivěně.
+V tu chvílí zdvihla oči, nejprve se tvářila udiveně.
 
 Sluší ti to.
 

@@ -32,7 +32,7 @@ Vzpomínal jsem na onu snídani se slečnou Terezou na Lynchově náměstí. Pol
 
 Jenomže dobrých chvil ubývalo, jak přibývalo stupidních článků na našem webu.
 
-Tohle nebylo proč jsem tady a mikrovlný spoj na střeše mi vypaloval díru do hlavy. Já, student statistiky a ekonomie, jsem chtěl prostřednictvím svých článků šířit osvětu a finanční gramotnost mezi prostý lid a ne pomáhat s přeměnou Dobrého hospodáře na další bulvární plátek.
+Tohle nebylo proč jsem tady a mikrovlnný spoj na střeše mi vypaloval díru do hlavy. Já, student statistiky a ekonomie, jsem chtěl prostřednictvím svých článků šířit osvětu a finanční gramotnost mezi prostý lid a ne pomáhat s přeměnou Dobrého hospodáře na další bulvární plátek.
 
 Sestoupil jsem po žebříku. Zavřel za sebou poklop s nápisem „Vstup zakázán!“ a odebral se ke svému počítači. Otevřel jsem emailového klienta a začal psát výpověď. Nazval jsem to „Vysoké umění nízkého titulku“.
 

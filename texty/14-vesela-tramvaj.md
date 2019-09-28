@@ -61,7 +61,7 @@ najdete nepochybně vybranější nápoje, ale v kvantitě nemá jabčák konku
 Kolik básní vzniklo pod vlivem jabčáku, kolik dramat (nutno říct,
 že spíše těch životních) přivedl na svět jabčák?
 
-Na konci večera, či spíše vlastně na záčátku druhého dne,
+Na konci večera, či spíše vlastně na začátku druhého dne,
 seděla Markéta v baru a byla už totálně opilá jabčákem.
 Společnost se pomalu rozcházela. Markéta slušně odmítla všechny umělcovy
 nabídky (například tu na přespání) a odebrala se na tramvaj.

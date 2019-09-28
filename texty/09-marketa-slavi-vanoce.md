@@ -51,8 +51,8 @@ mlhu, která pomalu plynula po proudu řeky. Celá ta scenérie vypadala jak
 z nějaké béčkové detektivky.
 
 Zato pod mostem bylo útulno. Teda – bylo by, kdyby tam nebyla mrtvola,
-u ní soudní lékař se svými asistenty a polovina oddělení vražd
-Markétovské policie. Tedy – to oddělení ve skutečnosti tvoří jen dva
+u ní soudní lékař se svými asistenty a polovina oddělení vražd. 
+Tedy – to oddělení ve skutečnosti tvoří jen dva
 muži. Jeden z nich – Jan Waldfrucht – už byl na místě a ze své pozice
 šéfa oddělení vražd komandoval policejního fotografa. Když pak přišla
 druhá polovina oddělení – již zmíněný Jakub Bludowský, pozdravili se. –
@@ -82,7 +82,7 @@ Zapípal mobil, přišla od něj SMS: „`Dnes vecer uz nedorazim. Mame toho
 plno. J.`“ A bylo po Vánocích.
 
 Markéta ještě zkoušela zahnat chmury televizí, ale na každém kanále
-bežela nějaká šťastná rodinka nebo alespoň pohádka nebo reklama pro
+běžela nějaká šťastná rodinka nebo alespoň pohádka nebo reklama pro
 šťastnou rodinku. A nešťastný člověk nevydrží pohled na štěstí, a tak se
 Markéta zvedla, obula a oblékla a vyrazila ven. Kráčela ulicí Na
 Vyhlídce, ale ani tady nemohla uniknout rodinnému štěstí. Ze všech oken
@@ -109,7 +109,7 @@ Konstantin, jeho odběratel, už z toho byl docela nervózní a chtěl zpět
 svou zálohu za zboží. Filipa se zmocnila paranoia, některý z jeho lidí
 musí být práskač. No to byla situace!
 
-Ostatní zákaznící nonstopu neměli tak chmurnou náladu jako Filip.
+Ostatní zákazníci nonstopu neměli tak chmurnou náladu jako Filip.
 Slavili Vánoce, což ve Ztracené existenci znamenalo každou celou hodinu
 jeden jabčák zdarma. Filipa zaujala jedna slečna u stolu pod hodinama.
 Měla oříškově hnědé oči a vlasy... no... znáte to, taková ta barva mezi
@@ -226,7 +226,6 @@ zrcadla.
 
 Hlavou se jí honila spousta myšlenek. Proč je na světě tolik zločinu?
 Proč s NÍM nemohla v klidu oslavit Vánoce?
-
 Přešla do kuchyně a tam si postavila na čaj.
 
 Vytáhla mobilní telefon. Přemýšlela, že Jakubovi zavolá. Ne, nezavolá,

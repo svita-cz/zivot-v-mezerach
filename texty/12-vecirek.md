@@ -22,7 +22,7 @@ Detektiv spal. Nebo možná nespal, možná jenom přemýšlel nebo vzpomínal. 
 
 Rána jako rána.
 
-Neměl rád tahle rána po večírku. Člověk si jen chce trochu odpočinout od všech těch každodeních zločinů, politické beznaděje a přízemních starostí všedního dne. A pak se celý večer topí v kvalitních lihovinách a nekvalitních videoklipech. Rammstein ve čtyři hodiny ráno a (ne)jistá slečna, co se sprchovala v prostěradle, protože někdo ukradl dveře od koupelny... Sakra! Proč by někdo kradl dveře od koupelny?
+Neměl rád tahle rána po večírku. Člověk si jen chce trochu odpočinout od všech těch každodenních zločinů, politické beznaděje a přízemních starostí všedního dne. A pak se celý večer topí v kvalitních lihovinách a nekvalitních videoklipech. Rammstein ve čtyři hodiny ráno a (ne)jistá slečna, co se sprchovala v prostěradle, protože někdo ukradl dveře od koupelny... Sakra! Proč by někdo kradl dveře od koupelny?
 
 Zasněžené smrky, jinovatka na svazích u trati, logo PKP na závěsech...
 
@@ -40,7 +40,7 @@ Rozhlédl se a zjistil, že jsou s Markétou ve vagóně sami. "Půjdu se zeptat
 
 A pak bylo po zvuku poznat, že strojvůdce zařadil neutrál a začal brzdit. Vystoupili a spěšný vlak za zády se dal ne až zas tak spěšně do pohybu. Zůstali pod stříškou nádraží. Byla zima a jediný pohled na odjezdovou tabuli stačil k tomu, aby bylo jasné že teď tak hodinu nic nepojede.
 
-"A kde to jako jsme?" zeptala se Markéta. Nechápala. - "Vítej v Celině, ve městě kde jsem vyrůstal. Tady jsem chodil do školy. Tady jsem se poprvé zamiloval. Tady jsem se rozhodl, že se stanu detektivem..." zasnil se Bludowský. - "Tady? Ale vždyť tu nic není..." podivila se Markéta. A skutečně - nádraží obklopovala jen malá skupinka rodiných domů a na drážním pozemku samotném kromě nádražní budovy stálo jen pár polorozbořených přístřešků nejasného účelu a původu.
+"A kde to jako jsme?" zeptala se Markéta. Nechápala. - "Vítej v Celině, ve městě kde jsem vyrůstal. Tady jsem chodil do školy. Tady jsem se poprvé zamiloval. Tady jsem se rozhodl, že se stanu detektivem..." zasnil se Bludowský. - "Tady? Ale vždyť tu nic není..." podivila se Markéta. A skutečně - nádraží obklopovala jen malá skupinka rodinných domů a na drážním pozemku samotném kromě nádražní budovy stálo jen pár polorozbořených přístřešků nejasného účelu a původu.
 
 "No... Město je pravda trochu dál od nádraží. Tuhle trať totiž naši předkové nepostavili pro lidi, ale pro uhlí," dodal detektiv a vytáhl telefon a začal v něm listovat kontakty. "Mohli bychom navštívit mýho bráchu, když už tu jsme. Vlak stejně jen tak nepojede..." navrhl Markétě. Přikývla s pokrčením ramen: "Akorát doufám, že to není moc daleko. Je celkem zima." Nebylo to úplně blízko ale s tím detektiv nic dělat nemohl. "Neboj, dáme si pak čaj, to nás zahřeje..." uklidnil jí a s těmito slovy odešli z nádraží.
 
@@ -56,7 +56,7 @@ Vyšel na balkon s výhledem na elektrárnu v mlze a uvědomil si, že přesně 
 
 Z mlhy se ozvalo nádražní hlášení a muž na balkóně v tu chvíli trochu záviděl nádražákům. Oni mají život jasně nalinkovaný jízdním řádem - po spěšném rychlíku z Inženýrska přijíždí na druhou kolej osobní vlak ze směru Mury, za deset minut následovaný příjezdem tři vagónu hliníkových výlisků z místní továrny, které mají namířeno do strojírny v Budajhári kdesi u Rumunských hranic. Zatímco on tu bezradně kouká, nádražáci dole už tento rok rozjeli svoje mašiny a všechnu tu (bez/po)chybnou industriální mašinerii okolo.
 
-Byl v jiném paneláku ale se stejnou kocovinou jako před rokem. Ale něco se přecejen změnilo. Nebyl na to sám. Ta, která přijela s ním, spala vedle na gauči a podle jeho skromného odhadu se probudí v době, kdy spěšný vlak dorazí do Markétova na Východní nádraží a detektiv tam vystoupí.
+Byl v jiném paneláku ale se stejnou kocovinou jako před rokem. Ale něco se přece jen změnilo. Nebyl na to sám. Ta, která přijela s ním, spala vedle na gauči a podle jeho skromného odhadu se probudí v době, kdy spěšný vlak dorazí do Markétova na Východní nádraží a detektiv tam vystoupí.
 
 Nechápal. Nechápal to jak to detektiv s tou hnědookou slečnou mohli dokázat vstát tahle brzy a stihnout ten vlak. On měl se vstáváním vždycky problém.
 
