@@ -322,7 +322,7 @@ Detektiv se rozhlédl: Místnost to byla celkem tmavá. Uprostřed stály dřev�
 
 Leger přistoupil k nejbližší bedně. Demonstrativně odklopil víko: „Jak jste ostatně říkal sám, poklad je tvořen převážně různými dokumenty.“ V bedně byl skutečně nějaký starý papír s německou orlicí. Na něm ležel nějaký menší rukou vyplněný formulář. Leger ho vzal a podal Bludowskému: „Tohle si pořádně prohlídněte. Skvělá ukázka německé pečlivosti.“
 
-Bludowský si formulář prohlédl. Rozuměl sice jen nápisu `LIEFERSCHEIN` nahoře a podpisům dole, ale bylo mu hned jasné, co to je: „Vždyť to je dodací list k tomu pokladu?!“ divil se.
+Bludowský si formulář prohlédl. Rozuměl sice jen nápisu `LIEFERSCHEIN` nahoře a podpisům dole, ale bylo mu hned jasné, co to je: „Vždyť to je dodací list k tomu pokladu!?“ divil se.
 
 „Ano, nejvýmluvnější ukázka německé pečlivosti,“ přitakal Leger. „Teď jistě chápete, že je to všechno, co vám můžu ukázat.“ — Detektiv přikývl. Obraz se uzavřel.
 

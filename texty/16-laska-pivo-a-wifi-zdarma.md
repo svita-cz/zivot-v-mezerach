@@ -4,9 +4,9 @@
 
 Na malejch městech lidi víc chlastaj, protože tam není co dělat. Ve velkejch městech to máš jiný. Kina, divadla, koncerty, galerie, vždycky najdeš aspoň nějaký kulturní vyžití. Tady u nás na maloměstě? Jedinej rockovej klub před rokem zkrachoval. Tady není co dělat. A proto tady lidi tak chlastaj a chlastaj, řekla jsem.
 
-„No, ale ve velkejch městech to není lepší,“ namítnul Erik. „Vraceli jsme se posledním nočním vlakem z tahu, a tak nebylo lepší téma k hovoru než alkohol. Po osmi pivech a s příchodem půlnoci se v něm probudil Erik-filozof a začal mít živý zájem povídat si o věcech, o kterých se slušní lidé mimo filozofickou fakultu baví jen na konci večírku.
+„No, ale ve velkejch městech to není lepší,“ namítnul Erik. „Vraceli jsme se posledním nočním vlakem z tahu, a tak nebylo lepší téma k hovoru než alkohol. Po osmi pivech a s příchodem půlnoci se v něm probudil Erik filozof a začal mít živý zájem povídat si o věcech, o kterých se slušní lidé mimo filozofickou fakultu baví jen na konci večírku.
 
-Začalo to dotazem: „Myslíš, že jsme ve vesmíru sami?“ který pronesl pod jasnou noční oblohou, když jsme se blížili k nádraží. V čekárně to pak pokračovalo obligátním hledáním smyslu života, aby to ve vlaku (někde v úseku mezi Krabošicemi a Mokrou Vsí) skončilo litanií o prospěšnosti alkoholismu. K tomu jsme koneckonců měli kolem sebe výmluvné důkazy − naše spolucestující, kteří se teď fotili na selfie na Instagram.
+Začalo to dotazem: „Myslíš, že jsme ve vesmíru sami?“ který pronesl pod jasnou noční oblohou, když jsme se blížili k nádraží. V čekárně to pak pokračovalo obligátním hledáním smyslu života, aby to ve vlaku (někde v úseku mezi Krabošicemi a Mokrou Vsí) skončilo litanií o prospěšnosti alkoholismu. K tomu jsme koneckonců měli kolem sebe výmluvné důkazy — naše spolucestující, kteří se teď fotili na selfie na Instagram.
 
 Motorák se plazil noční krajinou. Za okny byla tma a sem tam spící vesnice. Pískal v obloucích a houpal se ze strany na stranu, jako kdyby sám měl upito. Nikdy bych neřekla, že jsou na trati takové výmoly. A jak se tak vlak houpal, přistála mi na klíně Hanka. Měla krásný upřímný oči v barvě pivních lahví.
 
@@ -32,9 +32,9 @@ Kde to jsem?
 
 Pod stolem!
 
-Cože?!
+Cože!?
 
-No… no… ale lepší doma pod stolem, než v cizí posteli pod peřinou. Ale ten zvonek... Ten zvonek... Ten se mi nezdá! Vždyť to je telefon. Asi bych to měla vzít.
+No… no… ale lepší doma pod stolem než v cizí posteli pod peřinou. Ale ten zvonek... Ten zvonek... Ten se mi nezdá! Vždyť to je telefon. Asi bych to měla vzít.
 
 „Haló?“
 
@@ -58,12 +58,12 @@ Vzdechla jsem a on to dozajista slyšel. „Hele, Majko, měla bys mít nějakou
 
 „Jo, jo, jo, jasný, ou kej.“
 
-„No, ta. Ať už ti ta směna rychle uplyne,“ zavěsil a zcela jistě si
+„No ta'. Ať už ti ta směna rychle uplyne,“ zavěsil a zcela jistě si
 labužnicky přihnul z plného tupláku.
 
 Počkat! Za pět minut dvanáct? Kolik je vlastně ho… Au! Blbej stůl.
 
-A skutečně − bylo za pět minut dvanáct. Boule na čele pekelně bolela a vůbec mi zněl hlavou guggenheim-ansámbl a drtička na sklo. Smrděla jsem jako stará ponožka. Postavila jsem si kafe a pomalu zamířila do koupelny. Tam jsem si vypláchla ústa (ježišmarja, já dneska vypadám!) a smyla jsem ze sebe pachuť včerejšího dne. Pak jsem v obýváku posbírala něco na sebe. 
+A skutečně — bylo za pět minut dvanáct. Boule na čele pekelně bolela a vůbec mi zněl hlavou guggenheim-ansámbl a drtička na sklo. Smrděla jsem jako stará ponožka. Postavila jsem si kafe a pomalu zamířila do koupelny. Tam jsem si vypláchla ústa (ježišmarja, já dneska vypadám!) a smyla jsem ze sebe pachuť včerejšího dne. Pak jsem v obýváku posbírala něco na sebe.
 
 Podprsenku! Podprsenku!? Kam jsem sakra dala podprsenku?
 
@@ -77,9 +77,9 @@ Jak se tam sakra...
 
 Zkusila jsem ji přitáhnout. Nejdřív rukou, pak koštětem. A pak jsem usoudila, že se teda jako dneska obejdu bez podprsenky.
 
-No, tak. Tričko, sukni, kafe a je čas jít. A tak jsem spěšně opustila byt. Dole v přízemí na mě pak ze schránky spiklenecky pomrkával červený pruh.
+No tak. Tričko, sukni, kafe a je čas jít. A tak jsem spěšně opustila byt. Dole v přízemí na mě pak ze schránky spiklenecky pomrkával červený pruh.
 
-Počkat! Vždyť je neděle! To přece pošta nechodí. 
+Počkat! Vždyť je neděle! To přece pošta nechodí.
 
 Předvolání k podání vysvětlení? Fízlové? Cože? No, to je dneska den!
 
@@ -91,11 +91,11 @@ Když jsem pak přecházela přes náměstí, hulákali na mě nějaký kluci, c
 
 Pokrčili rameny a mě došlo, že oni už v práci dost možná jsou. Vypadali totiž jako drogoví dealeři. Odemkla jsem krám, vytáhla rolety, postavila na ulici poutač a šla si uvařit kafe.
 
-Ty vole, ještě, že je ten Erik v Karlsruhe. Půl hodiny zpoždění, no, to by mi dal! V kavárně to taky vypadalo hrozně: Sklenky na stole, špinavý hrníčky, vajgly v květináčích. Asi se tu včera něco zapíjelo,
+Ty vole, ještě, že je ten Erik v Karlsruhe. Půl hodiny zpoždění, no, to by mi dal! V kavárně to taky vypadalo hrozně: Sklenky na stole, špinavý hrníčky, vajgly v květináčích. Asi se tu včera něco zapíjelo.
 
-Ale počkat! 
+Ale počkat!
 
-Vždyť já jsem tady včera večer byla... 
+Vždyť já jsem tady včera večer byla...
 
 Prskavky, skleničky, víno, svíčky, narozeniny, tanečky, nemravný návrhy. Noc, měsíček, zámecká zahrada, zárodek revoluce, koupání v rybníce, divná hudba, noční cesta přes město... Marián v mojí posteli!?
 
@@ -108,7 +108,7 @@ Z úvah mě vytrhl jeden z dealerů: „Nazdar, kotě! Máš tady cigára?“
 „Doutníky? Si myslíš, že jsme nějaký jako buržousti, nebo co?“ A za zpěvu Internacionály odešel.
 
 Opět jsem se ponořila do vzpomínání, co že to včera bylo, a jak jsem tak sklízela ze stolů, došlo mi, že vlastně bylo
-všechno a že toho bylo mnohem víc! Šmarjá... Snad jsem s tím Mariánem včera nevyspala?!
+všechno a že toho bylo mnohem víc! Šmarjá... Snad jsem se s tím Mariánem včera nevyspala!?
 
 A opět mě někdo přerušil od vzpomínání. Tentokrát to byl Jackie Chan, teda, respektive, on se nejmenoval Jackie Chan, ale my jsme mu tak s holkama říkaly. Jeho rodiče vedli čínskou restauraci v Hradební ulici a on něco studoval ve městě. Teď, když už jsme oba pracovali, občas zašel k nám do kavárny.
 
@@ -122,11 +122,11 @@ A opět mě někdo přerušil od vzpomínání. Tentokrát to byl Jackie Chan, t
 
 „Třeba se vám jenom doma zastavily hodiny.“
 
-„No, to je možný.“ Po pravdě řečeno, nebyla jsem si úplně jistá, zda ty hodiny vlastně vůbec někdy šly.  - „No, ale i zastavené hodiny ukazují dvakrát správný čas, bráno filozoficky. Můžu si u vás něco dát? Máte vůbec otevřeno?“
+„No, to je možný.“ Po pravdě řečeno, nebyla jsem si úplně jistá, zda ty hodiny vlastně vůbec někdy šly. — „No, ale i zastavené hodiny ukazují dvakrát denně správný čas, bráno filozoficky. Můžu si u vás něco dát? Máte vůbec otevřeno?“
 
 „No, když už tady jste…“
 
-A tak si dal matéčko a povídal si o počasí (to víte, já studuju tu meteorologii) a potom na rozloučenou mi řekl, že mi to dneska sluší. 
+A tak si dal matéčko a povídal si o počasí (to víte, já studuju tu meteorologii) a potom na rozloučenou mi řekl, že mi to dneska sluší.
 
 Ani bych neřekla!
 
@@ -138,9 +138,9 @@ No, to mám jako zavřít krám?
 
 No, tak teda jo, no,“ položila jsem telefon a šla jsem si vařit kafe.
 
-To je samý: „Jako tvůj právní zástupce ti doporučuju,“ a když dojde na lámání chleba, tak si můj právní zástupce válí šunky někde na pláži. No, ještě, že je ta kriminálka jenom přes náměstí. Co na plat... 
+To je samý: „Jako tvůj právní zástupce ti doporučuju,“ a když dojde na lámání chleba, tak si můj právní zástupce válí šunky někde na pláži. No, ještě že je ta kriminálka jenom přes náměstí. Co na plat...
 
-Dopila jsem kávu, dala jsem ceduli: „Přijdu ihned“ a vydala se na výslech. Na policejní stanici mezitím probíhala revoluce. Teda - jenom v televizi u vrátného. Řekla jsem mu, že jdu na výslech, a on hned věděl, kam mám jít, a zavolal mi toho mého policajta.
+Dopila jsem kávu, dala jsem ceduli: „Přijdu ihned“ a vydala se na výslech. Na policejní stanici mezitím probíhala revoluce. Teda — jenom v televizi u vrátného. Řekla jsem mu, že jdu na výslech, a on hned věděl, kam mám jít, a zavolal mi toho mého policajta.
 
 Krátký sestřih, kšiltovka, tričko bez nápisů, sepraný džíny a pořádnej pupek. Všechny orgány činný v trestním řízení takhle vypadaly. Asi to fasujou místo uniformy. A už si mě vedl doleva a až úplně nahoru pod střechu, kde měl kancl.
 
@@ -160,11 +160,11 @@ A tak jsem si dala čtvrtou kávu toho dne.
 
 „No… to… to si taky nepamatuju,“ řekla jsem nevinně. Tak nevinně, jak jenom jde podobnou věc říct.
 
-„No, tak to vám budu muset asi osvěžit paměť,“ řekl vyšetřovatel a vytáhl jakýsi spis: „Takže,“ odkašlal si, „30. 4. 2017 přijala ústředna hlášení o nálezu mrtvého těla u rybníka v zámecké zahradě zámku Zloduška. Ohlašovatel udal své jméno jako Marián Rota. Na místo byla vyslána sanita a motorizovaná hlídka, která zajistila svědky a zařídila střežení místa činu do příjezdu vyšetřovatele. Výslech svědků, Mariána Roty, bytem U Cukrovaru 52, Zloduška, a Marie Kleinové, bytem Horská 13, Zloduška, byl po dohodě s vyšetřovatelem odložen na následující den z důvodu pozdních nočních hodin a silné únavy svědků.“ 
+„No, tak to vám budu muset asi osvěžit paměť,“ řekl vyšetřovatel a vytáhl jakýsi spis: „Takže,“ odkašlal si, „30. 4. 2017 přijala ústředna hlášení o nálezu mrtvého těla u rybníka v zámecké zahradě zámku Zloduška. Ohlašovatel udal své jméno jako Marián Rota. Na místo byla vyslána sanita a motorizovaná hlídka, která zajistila svědky a zařídila střežení místa činu do příjezdu vyšetřovatele. Výslech svědků, Mariána Roty, bytem U Cukrovaru 52, Zloduška, a Marie Kleinové, bytem Horská 13, Zloduška, byl po dohodě s vyšetřovatelem odložen na následující den z důvodu pozdních nočních hodin a silné únavy svědků.“
 
 Vyšetřovatel zacvakl spis. „No… nemoh' jsem tam napsat, že jste byli ožralí jak dogy... Tak co? Už si vzpomínáte?“
 
-„No, jo... Už si vzpomínám. Mohla bych poprosit o trochu vody?“ 
+„No, jo... Už si vzpomínám. Mohla bych poprosit o trochu vody?“
 
 V tu chvíli se mi totiž oživilo všechno, co se ten večer stalo a co jsem se (nutno říct, že celkem úspěšně) snažila přepít: noční koupání v rybníce, nález mrtvoly v rákosí, nečekané nekonečné čekání na policii, zmatený noční výslech a pak Marián, který mi celý zhroucený brečel do polštáře po tom, co jsem přesvědčila policajty, že se o něj postarám líp než jejich psycholog.
 
@@ -214,7 +214,7 @@ a policajta ke mně totiž dost možná chodí i budoucí premiér.
 
 ### Intermezzo: Kusá kolej
 
-Teda, ona to není tak úplná pravda, že jsme jediná kavárna ve městě. Kromě Oázy, kde pracuju, je prý ve městě ještě něco, co se jmenuje Somár nebo Soumar nebo tak nějak. Sama jsem tam nikdy nebyla. Původně jsem si myslela, že zavírají dřív, než mi končí směny, ale pak jsem vypozorovala takovou jednu podivnost -  lidi, co tam byli, se totiž nedokázali úplně shodnout na tom, kde že to vlastně ten Soumar je...
+Teda, ona to není tak úplná pravda, že jsme jediná kavárna ve městě. Kromě Oázy, kde pracuju, je prý ve městě ještě něco, co se jmenuje Somár nebo Soumar nebo tak nějak. Sama jsem tam nikdy nebyla. Původně jsem si myslela, že zavírají dřív, než mi končí směny, ale pak jsem vypozorovala takovou jednu podivnost —  lidi, co tam byli, se totiž nedokázali úplně shodnout na tom, kde že to vlastně ten Soumar je...
 
 Vypadalo to, že se ta druhá kavárna nacházela někde mezi zámečkem, cukrovarem a nábřežím... Což prakticky zahrnovalo úplně celé město.
 
@@ -222,18 +222,18 @@ Jednou večer jsem tam skoro došla. Ale už asi měli zavřeno. Došli jsme tot
 
 „To jsem blázen. Přísahal bych, že tady včera byla kavárna,“ divil se Marián a mně začínalo být jasno, proč jsem tam ještě nikdy nebyla. Zřejmě tu kavárnu totiž vede rumová víla nebo nějaké jiné temné mocnosti.
 
-### Zpěv čtvrtý: Dobříš - Háje
+### Zpěv čtvrtý: Dobříš − Háje
 
-Když jsem se z výslechu vrátila před kavárnu, zjistila jsem, že se stalo přesně to, čeho jsem se bála: Před dveřmi stála fronta. Teda, taková docela krátká fronta... Byli to vlastně jenom dva lidi. 
+Když jsem se z výslechu vrátila před kavárnu, zjistila jsem, že se stalo přesně to, čeho jsem se bála: Před dveřmi stála fronta. Teda, taková docela krátká fronta... Byli to vlastně jenom dva lidi.
 
-První byl ten drogový dealer - že by si přece jenom něco koupil, a to konkrétně ty doutníky. Asi se mu podařilo prodat všechen kokain. 
+První byl ten drogový dealer — že by si přece jenom něco koupil, a to konkrétně ty doutníky. Asi se mu podařilo prodat všechen kokain.
 
 Za ním pak stál kryptolog. Objednal si zelenej čaj do zelené konvičky a šel se jako obvykle posadit až úplně dozadu ke knihovně. Tam pak seděl v křesílku, listoval v nějaké knize popsané nesrozumitelnými matematickými symboly a vůbec nevěnoval pozornost okolí. Akorát když jsem se nad ním nakláněla s tácem, zdvihl zrak, zadíval se mi do očí a zasmál se ve stylu Fantomase (bhahaha) a poděkoval. Pak se dál věnoval těm svým šifrám a hádankám.
 
 Po chvíli přišel k baru, objednal si medovník a zase zmizel v koutu u křesílka, kde se dál věnoval svým plánům na ovládnutí světa. Přinesla jsem mu medovník, a jak jsem ho pokládala na stůl, kryptolog vzhlédl, podíval se a tajuplně
-se usmál. 
+se usmál.
 
-Pokud je tu někdo budoucí premiér, tak je to určitě on! 
+Pokud je tu někdo budoucí premiér, tak je to určitě on!
 
 Za dalších patnáct minut jsem se ho šla zeptat, jestli mu něco nechybí.
 
@@ -246,11 +246,11 @@ Sakra, to bylo zrovna u tohohle zákazníka podivný... Tenhle chlap, ten má n�
 Tak jsem se vrátila k baru, kde jsem přemýšlela, zda se mě spíš chystá pozvat na rande nebo spíš plánuje palácový převrat. Ale nakonec nebyla správná ani jedna varianta. Když totiž zaplatil, zarazil se a trošku nesměle řekl: „Ehm... No... Ehm, no... Asi byste měla vědět, že když se v tomhle tričku tak jako nakláníte nad ten stůl... Tak je vám
 celkem jako... Celkem jako dost hodně vidět do výstřihu.“
 
-„Počkat! Jak jako «celkem jako hodně»? Co to znamená? Co všechno bylo vidět?!“
+„Počkat! Jak jako »celkem jako hodně«? Co to znamená? Co všechno bylo vidět!?“
 
 „No... Všechno... Úplně všechno.“
 
-Tak to teda jako nebyl oční kontakt?! Nejenom, že mi čumí do výstřihu, ale ještě to takhle napřímo přizná! Šizunk jeden!!!
+Tak to teda jako nebyl oční kontakt!? Nejenom, že mi čumí do výstřihu, ale ještě to takhle napřímo přizná! Šizunk jeden!!!
 
 „Děkuji za upozornění,“ odvětila jsem; co nejuctivějším výrazem, jakého jsem byla v té chvíli schopná.
 
@@ -265,7 +265,7 @@ A pak přišel Marián. Tvářil se dost zničeně, asi ho policejní psycholog 
 „Na nás dva?“
 
 „No, jako na nás dva; vždycky, když se s tebou snažím být někde sám, tak se něco pokazí. Když jsme měli jet na vodu, byly povodně. Když jsme pak chtěli jet lyžovat, tak během jednoho tejdne roztál všechen sníh. Potom když jsme stanovali, tak nás málem sklidil kombajn. Potom... Potom jsme spolu strávili půl dne zamčený ve špajzu, potom co se rozbil zámek. A teď... Teď se jdeme koupat a najdeme mrtvolu! Prostě, já mám pocit,
-že jsme asi prokletí...“ řekl, zatvářil se hrozně smutně a pokračoval: „Najdeme mrtvolu?! To se prostě normálním lidem nestává... Budu se teď bát na to místo jít znova. Co tam najdem' příště? ... A taková krásná koupačka to mohla bejt. Nebejt toho mrtvoláka!“
+že jsme asi prokletí...“ řekl, zatvářil se hrozně smutně a pokračoval: „Najdeme mrtvolu!? To se prostě normálním lidem nestává... Budu se teď bát na to místo jít znova. Co tam najdem' příště? ... A taková krásná koupačka to mohla bejt. Nebejt toho mrtvoláka!“
 
 Znova se napil a bylo vidět, že se v něm teď míchá pivo, vztek a smutek. „Ale ne, ne, Marie, ty s tím nemáš nic společnýho, to já jsem prokletej, osud mi prostě nepřeje.“ A znovu pivo a znovu vztek.
 
@@ -277,16 +277,16 @@ Podíval se na mě a řekl: „Kdyby to bylo tak jednoduchý.“ Podíval se do 
 
 „Ty to víš?“ vypadal překvapeně. „Tak proč jako se tak jako…“
 
-„Ale vždyť tohle už jsme přece probírali. Mě to stojí za to s tebou být, přes všechnu tu smůlu, co se na tebe lepí, nebo na nás lepí. Akorát to zkrátka nemám tak jako ty.“
+„Ale vždyť tohle už jsme přece probírali. Mně to stojí za to s tebou být, přes všechnu tu smůlu, co se na tebe lepí, nebo na nás lepí. Akorát to zkrátka nemám tak jako ty.“
 
-„Nemám tak jako ty, no to je dobrý,“ dodal, dopil zbytek piva, položil na stůl tři Stely a zbaběle prchnul. Vždycky tak trochu zavíral oči před pravdou. Už od tý doby, co jsem ho objala v autobuse, poté co mi vydal
+„Nemám tak jako ty, no to je dobrý,“ dodal, dopil zbytek piva, položil na stůl tři stely a zbaběle prchnul. Vždycky tak trochu zavíral oči před pravdou. Už od tý doby, co jsem ho objala v autobuse, poté co mi vydal
 jízdenku.
 
 ### Zpěv šestý: Ráj
 
 A pak nastal večer a konečně přišla Hanka.
 
-„Tyjo! Já jsem tak ráda, že tě vidím. Mám dneska úplně mizernej den.“ A začala jsem jí vyprávět celou tu dnešní šlamastyku - počínaje probuzením pod stolem, pokračujíc přes pozdní příchod do práce, zastavené hodiny, výslech na policii, kryptologa koukajícího do výstřihu až nakonec k tomu Mariánově výstupu. „Hroznej den! Naprosto naprosto hroznej!“
+„Tyjo! Já jsem tak ráda, že tě vidím. Mám dneska úplně mizernej den.“ A začala jsem jí vyprávět celou tu dnešní šlamastyku — počínaje probuzením pod stolem, pokračujíc přes pozdní příchod do práce, zastavené hodiny, výslech na policii, kryptologa koukajícího do výstřihu až nakonec k tomu Mariánově výstupu. „Hroznej den! Naprosto naprosto hroznej!“
 
 „Ale to bude dobrý, teď jsem tu já a všechno ti pomůžu zvládnout,“ řekla sebejistě a její optimismus byl tak příjemně nakažlivej. Věřila jsem jí to.
 
@@ -294,7 +294,7 @@ A pak nastal večer a konečně přišla Hanka.
 
 „No, můžeš to zkusit,“ řekla nejistě.
 
-Objala jsem ji, jako se koalí mládě objímá matku, jako horolezec při pádu objímá lano. Vlasy jí voněly po bouřce.
+Objala jsem ji, jako koalí mládě objímá matku, jako horolezec při pádu objímá lano. Vlasy jí voněly po bouřce.
 
 „A, ty, Hanko? Můžu tě políbit?“
 
@@ -324,7 +324,7 @@ Pak jsem nejistě začala: „Víš, Haničko, já bych byla ráda, že jsi pro 
 
 „Nemám jako ty, no, no, to je dobrý,“ řekla jsem. Chtěla jsem ještě něco dodat, ale pak jsem si uvědomila, že na to vlastně není čas.
 
-Položila jsem tedy na stůl tři Stely a zbaběle jsem prchla. Vždycky jsem tak trochu zavírala oči před realitou, i když se za mnou z kavárny ozývalo: „Hej! Kam běžíš?“
+Položila jsem tedy na stůl tři stely a zbaběle jsem prchla. Vždycky jsem tak trochu zavírala oči před realitou, i když se za mnou z kavárny ozývalo: „Hej! Kam běžíš?“
 
 Uprostřed náměstí se mezitím tančilo. Tedy, starší dealer tam cosi pouštěl z telefonu, jakýsi dřevní hip-hop, a ten mladší dealer u toho pokyvoval hlavou a tančil. A předváděl takové taneční kreace, za které by se nemusel stydět ani Michael Jackson na vrcholu své kariéry. Skladba pomalu skončila a náš tanečník předvedl jakýsi akrobatický prvek, který málem zakončil elegantním zarytím nosu do chodníku.
 
@@ -338,7 +338,7 @@ Přišla jsem k němu blíž. „Ještě máte tu lásku, pivo a wifi zdarma?“
 
 „No, ale jak já tak na vás dva koukám, tak možná radši jenom to pivo.“
 
-Mladší dealer mlčky pokynul ke staršímu a ten mlčky vytáhnul z kabátu plechovku Bráníku.
+Mladší dealer mlčky pokynul ke staršímu a ten mlčky vytáhnul z kabátu plechovku Braníku.
 
 „Díky,“ poděkovala jsem. Jo, vychlazený pivo. To jsem přesně potřebovala! Znova jsem se napila.
 
@@ -348,9 +348,9 @@ Ale než jsem se stačila zeptat, ten mladší dealer pustil z telefonu Les Rita
 
 „Smím prosit?“ poklonil se.
 
-„Ale jo... Proč ne...“ řekla jsem a přidala se k němu. Tak jsme tam tančili tango na náměstí, zatímco starší dealer si zapálil a spokojeně na nás koukal. Bylo v tom cosi uvolňujícího. Někdy člověk skutečně potřebuje jen trochu piva, lásky a možnost zatančit si s dealerem na náměstí. Jo. A ještě potřebuje jednu − hodně důležitou věc: montážní plošinu.
+„Ale jo... Proč ne...“ řekla jsem a přidala se k němu. Tak jsme tam tančili tango na náměstí, zatímco starší dealer si zapálil a spokojeně na nás koukal. Bylo v tom cosi uvolňujícího. Někdy člověk skutečně potřebuje jen trochu piva, lásky a možnost zatančit si s dealerem na náměstí. Jo. A ještě potřebuje jednu — hodně důležitou věc: montážní plošinu.
 
-Tango bylo stále vášnivější a vášnivější a můj tanečník byl stále dotěrnější a dotěrnější, rukama mě osahával jako při celní prohlídce, ale to nebylo vůbec nic proti tomu, co dělal očima. Ty svůdné pohledy typu Casanova hadr... No teda! 
+Tango bylo stále vášnivější a vášnivější a můj tanečník byl stále dotěrnější a dotěrnější, rukama mě osahával jako při celní prohlídce, ale to nebylo vůbec nic proti tomu, co dělal očima. Ty svůdné pohledy typu Casanova hadr... No teda!
 
 Podíval se mi do očí a chtěl říct něco podobně patetického, něco jako: „Marie, já vás miluji,“ ale já jsem
 ho předběhla: „Neznáš někoho, kdo má montážní plošinu?“
@@ -366,9 +366,9 @@ Plošina se začala pomalu zvedat.
 
 „Vejš... Vejš... Vejš...“ Až narazila do lampy: „Jau! Kam čumíš, ty debile?“ Mladší dealer se krčil v koši plošiny a nadával.
 
-„Jo, sorry... Sorry,“ odvětil Franta a poslal plošinu trošku dolů a dál k jejímu cíli. 
+„Jo, sorry... Sorry,“ odvětil Franta a poslal plošinu trošku dolů a dál k jejímu cíli.
 
-Plošina zajela do větví stromů a začala je lámat. Větve padaly dolů a s nimi spadla i ta věc, kvůli které se celá ta eskapáda s plošinou konala − moje podprsenka. Už už jsem ji chtěla vzít, ale předběhl mě ten starší dealer, který si ji vzal a mocně si k ní přičichl. V tu chvíli omdlel a svalil se jak širokej tak dlouhej a z kapes se mu vysypalo množství růzých pochybných substancí.
+Plošina zajela do větví stromů a začala je lámat. Větve padaly dolů a s nimi spadla i ta věc, kvůli které se celá ta eskapáda s plošinou konala — moje podprsenka. Už už jsem ji chtěla vzít, ale předběhl mě ten starší dealer, který si ji vzal a mocně si k ní přičichl. V tu chvíli omdlel a svalil se jak širokej tak dlouhej a z kapes se mu vysypalo množství růzých pochybných substancí.
 
 Co že to člověk vlastně k životu potřebuje? Lásku, pivo a wifi zdarma?
 
