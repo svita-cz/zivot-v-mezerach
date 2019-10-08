@@ -40,7 +40,7 @@ A poslední, stopa osmá: Střelba. Nějaké malé dítě: „Mami.“ Znovu st�
 
 Vrátila se k šesté stopě, té továrně, třeba je klíč k osmé stopě těch předchozích sedm. Továrna na šesté stopě rytmicky pracovala a pak kolem projela motorka. Znovu si pustila ten zvuk továrny. Markéta zavřela oči a zaposlouchala se. Stroj, motorka. Stroj, motorka. Poslouchala šestou stopu dokola. A pak jí to došlo, kde takový stroj slyšela — exkurze v poštovní tiskárně cenin. Dost možná, že to bylo nahráno tam.
 
-Podívala se na mapu. Místa nahrávek byla, jak se zdálo, rozmístěna v podstatě náhodně. Markéta doufala, že je to jen nějaký nevydařený vtip. Že ona osmá stopa není nějakého sériového vraha. Znova si pustila osmou stopu: Střelba, dítě, střelba. Tahle stopa se od ostatních lišila.
+Podívala se na mapu. Místa nahrávek byla, jak se zdálo, rozmístěna v podstatě náhodně. Markéta doufala, že je to jen nějaký nevydařený vtip. Že ona osmá stopa není dílo nějakého sériového vraha. Znova si pustila osmou stopu: Střelba, dítě, střelba. Tahle stopa se od ostatních lišila.
 
 Markéta sundala sluchátka a šla do koupelny. Pila. Někde nahoře se spustilo čerpadlo. A v tom jí to docvaklo — ta osmá stopa nemá prostorový zvuk.
 

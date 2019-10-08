@@ -50,7 +50,7 @@ V tomhle jsem s ní byl zajedno. Ústřední archiv je skutečně mimořádně h
 
 Autobus projel po Železném mostě. Světla města se odrážela v řece a já si opět potvrdil, že byly žárovky vynalezeny proto, aby se mohly odrážet v řece. Řeka tu totiž byla před žárovkami.
 
-Přejeli jsme okolo automatu svět, kde blednoucí prodavačky nabízejí chlebíčky pamětníky. Autobus vjel na druhý břeh — do Podhradí.
+Přejeli jsme okolo Automatu Svět, fast foodu, kde blednoucí prodavačky nabízejí chlebíčky pamětníky. Autobus vjel na druhý břeh — do Podhradí.
 
 Tady bych teda nechtěla bydlet, projelo hlavou mé spolujezdkyni.
 

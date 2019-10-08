@@ -52,7 +52,7 @@ S ohněm v očích stoupala dál, ale ta postava jí byla čím dál známějš�
 
 On to byl teda divný patron. To jo. Divný dokonce i na poměry filozofické fakulty. Ale tohle?
 
-„Dobrý den!“ pozdravila ho schválně dost nahlas. Vzhlédl od bronzové mísy: „Dobrý večer, Markéto, co tady děláte?“ – „Na to samý jsem se chtěla zeptat já vás. Já tu totiž bydlím.“ – Nadechl se, položil poloprázdnou láhev Zázvorovice na zem vedle mísy a podíval se na Markétu: „Dělám takový malý obřad na ozdravení demokracie.“ – Skoro vyprskla smíchy: „Prosím!?“ – „No prostě pálim nepoužité volební lístky za tichého zpěvu Finských metalových balad…“ Na tváři Markéty se začal rýsovat jakýsi neurčitý škleb, tak spěšně dodal: „Je to taková moje tradice, dělám to každé volby.“ – „Tak doufám, že se vám tu demokracii podaří ozdravit.“ Řekla s trochou ironie v hlase. „Viděla jsem před chvílí Kozáka s Taškárem, jak se spolu družně baví.“ – „To jste nevěděla?“ zeptal se jí překvapeně.
+„Dobrý den!“ pozdravila ho schválně dost nahlas. Vzhlédl od bronzové mísy: „Dobrý večer, Markéto, co tady děláte?“ – „Na to samý jsem se chtěla zeptat já vás. Já tu totiž bydlím.“ – Nadechl se, položil poloprázdnou láhev Zázvorovice na zem vedle mísy a podíval se na Markétu: „Dělám takový malý obřad na ozdravení demokracie.“ – Skoro vyprskla smíchy: „Prosím!?“ – „No prostě pálim nepoužité volební lístky za tichého zpěvu finských metalových balad…“ Na tváři Markéty se začal rýsovat jakýsi neurčitý škleb, tak spěšně dodal: „Je to taková moje tradice, dělám to každé volby.“ – „Tak doufám, že se vám tu demokracii podaří ozdravit.“ Řekla s trochou ironie v hlase. „Viděla jsem před chvílí Kozáka s Taškárem, jak se spolu družně baví.“ – „To jste nevěděla?“ zeptal se jí překvapeně.
 
 Ne, nevěděla to. O politiku se nezajímala a to málo, co se dozvěděla, ji vždy stačilo utvrdit v jejím nezájmu. Netušila, že se znají už z dob před svým politickým působením. Netušila, že mezi jejich stranami se vede už téměř sto let taková místní studená válka. Nesnáší se, ale potřebují se. Jedna strana si nemůže dovolit druhou zlikvidovat, protože by se pak neměla vůči čemu vymezit.
 
@@ -84,4 +84,4 @@ Markéta vzala láhev Zázvorovice stojící u paty mísy a ochutnala. Otřásla
 
 [^z2]: A tady je dobré připomenout, že v Hlubočici mají místní (obecní) úřady o dost silnější pravomoci než v Čechách. Jedním z důsledků je i přímá volba starosty.
 
-![No prostě pálim nepoužité volební lístky za tichého zpěvu Finských metalových balad…](obrazky/nahled_04.jpg)
+![No prostě pálim nepoužité volební lístky za tichého zpěvu finských metalových balad…](obrazky/nahled_04.jpg)
