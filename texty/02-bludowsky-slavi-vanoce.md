@@ -50,7 +50,7 @@ Bludowský vystoupil. Odemkl dveře zchátralého činžáku a vystoupal po scho
 
 Nazítří seděl Bludowský na policejní stanici a prohlížel si oběžník s fotkou mrtvé. Nebylo to zrovna to, co by chtěl na Štědrý den dělat. Ale co naplat, někdo to dělat musí.
 
-„Co je zač?“ zeptal se. „Zatím nevíme. Včera večer skočila pod vlak kousek za Městem. Řeší to kolegové z venkova“ vysvětlil strážník. „A on?“ Bludowský otočil hlavu na zadrženého. „Načerno prodával rachejtle na vánočních trzích, a když jsme ho tu vyslýchali, uprostřed řeči vstal, díval se na nástěnku a ptal se, kdo je ta žena. Je to první svědek, který ji poznal.“
+„Co je zač?“ zeptal se. „Zatím nevíme. Včera večer skočila pod vlak kousek za městem. Řeší to kolegové z venkova“ vysvětlil strážník. „A on?“ Bludowský otočil hlavu na zadrženého. „Načerno prodával rachejtle na vánočních trzích, a když jsme ho tu vyslýchali, uprostřed řeči vstal, díval se na nástěnku a ptal se, kdo je ta žena. Je to první svědek, který ji poznal.“
 
 Svědek nebyl zrovna nadšený z toho, že s nim chce na Štědrý den mluvit kriminálka. „O vás mi nejde,“ uklidnil ho Bludowský, „jde mi o tu ženu. Vy ji znáte?“ — „Ne,“ opáčil svědek, „jenom prodávala ve vedlejším stánku vánoční stromečky. Trochu mě zaujala, chtěl jsem ji pozvat na kafe, ale neodvážil jsem se.“ Bludowský se zamračil. Neměl rád sebevraždy. „Znal jste ji jménem?“ — Svědek odpověděl zavrtěním hlavou a detektiv vzdychl. Svědek vykulil oči: „Teda doufám, že si nemyslíte, že jsem jí něco udělal?“ Bludowský si to nemyslel. Nemyslel si vůbec nic.
 

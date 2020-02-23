@@ -19,11 +19,11 @@ a usnul jak dobře zavedený bezdomovec, Markéta spala v překrásné kompozi
 jak na obraze starých mistrů.
 
 Jednou jsem ji takhle potkal. Jel jsem ráno do práce a v tom jsem si všimnul,
-že v tramvaji spí Markéta. Ve večerních šatech s kabelkou na klíně vsedě
-spala tak neuvěřitelně elegantním způsobem. Nechtěl jsem ji rušit,
-už proto, jak elegantně spala.
+že v tramvaji spí Markéta. Byla ve večerních šatech, na klíně měla kabelku a vsedě
+spala tak neuvěřitelně elegantním způsobem až jsem jí nechtěl rušit. 
+Už jen proto jak elegantně spala.
 
-Potom jsem se s ní jednou bavil. Řekla mi, že jsem ji měl probudit
+Potom jsem se s ní jednou bavil. Řekla mi, že jsem ji měl určitě probudit
 (a příště ať to rozhodně udělám), že si to ráno díky usínání v MHD užila dost.
 
 ---
@@ -275,7 +275,7 @@ sochy přece nemusí být hezké,“ začal sochař a pokračoval: „Třeba zr
 Kašpárek je dobrý v tom, jak posouvá hranice vnímání a vyvolává diskuzi.
 Sochy přece nemusí být jen hezké.“
 
-Napil se vína a pokračoval dál: „Víte, jaké sochy byly v parku pod Klášterem
+Napil se vína a pokračoval dál: „Víte, jaké sochy byly v parku pod klášterem
 původně?“ — Markéta se zamyslela, ale nakonec jí nezbylo než zavrtět hlavou.
 — „Já si to taky dlouho neuvědomoval. Žádné sochy jsem si z toho parku
 neuvědomoval, tak jsem se tam šel podívat. A tam mi to došlo —

@@ -52,7 +52,7 @@ S ohněm v očích stoupala dál, ale ta postava jí byla čím dál známějš�
 
 On to byl teda divný patron. To jo. Divný dokonce i na poměry filozofické fakulty. Ale tohle?
 
-„Dobrý den!“ pozdravila ho schválně dost nahlas. Vzhlédl od bronzové mísy: „Dobrý večer, Markéto, co tady děláte?“ – „Na to samý jsem se chtěla zeptat já vás. Já tu totiž bydlím.“ – Nadechl se, položil poloprázdnou láhev Zázvorovice na zem vedle mísy a podíval se na Markétu: „Dělám takový malý obřad na ozdravení demokracie.“ – Skoro vyprskla smíchy: „Prosím!?“ – „No prostě pálim nepoužité volební lístky za tichého zpěvu finských metalových balad…“ Na tváři Markéty se začal rýsovat jakýsi neurčitý škleb, tak spěšně dodal: „Je to taková moje tradice, dělám to každé volby.“ – „Tak doufám, že se vám tu demokracii podaří ozdravit.“ Řekla s trochou ironie v hlase. „Viděla jsem před chvílí Kozáka s Taškárem, jak se spolu družně baví.“ – „To jste nevěděla?“ zeptal se jí překvapeně.
+„Dobrý den!“ pozdravila ho schválně dost nahlas. Vzhlédl od bronzové mísy: „Dobrý večer, Markéto, co tady děláte?“ – „Na to samý jsem se chtěla zeptat já vás. Já tu totiž bydlím.“ – Nadechl se, položil poloprázdnou láhev zázvorovice na zem vedle mísy a podíval se na Markétu: „Dělám takový malý obřad na ozdravení demokracie.“ – Skoro vyprskla smíchy: „Prosím!?“ – „No prostě pálim nepoužité volební lístky za tichého zpěvu finských metalových balad…“ Na tváři Markéty se začal rýsovat jakýsi neurčitý škleb, tak spěšně dodal: „Je to taková moje tradice, dělám to každé volby.“ – „Tak doufám, že se vám tu demokracii podaří ozdravit.“ Řekla s trochou ironie v hlase. „Viděla jsem před chvílí Kozáka s Taškárem, jak se spolu družně baví.“ – „To jste nevěděla?“ zeptal se jí překvapeně.
 
 Ne, nevěděla to. O politiku se nezajímala a to málo, co se dozvěděla, ji vždy stačilo utvrdit v jejím nezájmu. Netušila, že se znají už z dob před svým politickým působením. Netušila, že mezi jejich stranami se vede už téměř sto let taková místní studená válka. Nesnáší se, ale potřebují se. Jedna strana si nemůže dovolit druhou zlikvidovat, protože by se pak neměla vůči čemu vymezit.
 
@@ -76,9 +76,9 @@ Přisedla si na mísu a zadívala se do ohně. Filozof se pomalu zvedl. Zřejmě
 
 „Hmmm. A po volbách…“ Pokračoval filozof a vzal jeden z volebních lístků z mísy. Lístek se mu tím zvednutím v ruce dočista rozsypal na popel. „A po volbách se tahle iluze rozsype. Skutečné moci se opět chopí nikým nevolené šedé eminence a další čtyři roky novodobého otroctví se rozjedou nanovo.“ Vlak v údolí vyjel z tunelu a plazil se jako železný had mezi odstavenými vagóny na Východním nádraží.
 
-Markéta vzala láhev Zázvorovice stojící u paty mísy a ochutnala. Otřásla se jako pes. Zázvorovice byla vůbec to nejšílenější, co kdy pila. Nad parkem, kde stáli, projel taxík.
+Markéta vzala láhev zázvorovice stojící u paty mísy a ochutnala. Otřásla se jako pes. Zázvorovice byla vůbec to nejšílenější, co kdy pila. Nad parkem, kde stáli, projel taxík.
 
-„Jak můžete s takovýmhle názorem každé ráno vstát, jít do školy a tam vyučovat?“ zeptala se ho a položila lahev Zázvorovice na okraj mísy. Filozof lovil v hlavě jakýsi Nietzscheho citát, ale než ho stačil vyslovit, Markéta zmizela za teréním zlomem v přízemní chodbě činžáku.
+„Jak můžete s takovýmhle názorem každé ráno vstát, jít do školy a tam vyučovat?“ zeptala se ho a položila lahev zázvorovice na okraj mísy. Filozof lovil v hlavě jakýsi Nietzscheho citát, ale než ho stačil vyslovit, Markéta zmizela za teréním zlomem v přízemní chodbě činžáku.
 
 `Amen`
 

@@ -42,17 +42,12 @@ Sváteční hudba ve vzduchu. Sami dva v místnosti. Kradmé pohledy. Zrzka v ze
 
 Plešatý chlápek v kožené bundě. Koho mi jen připomíná? Obličeje se tak opakujou.
 
-Zrzka rovná hrníčky. Chlápek pije kávu. Magneťák hraje:
+Zrzka rovná hrníčky. Chlápek pije kávu. Magneťák hraje[^pof1]:
 
-	I like beer, and I like cheese
-	I like the smell of a westerly breeze
-	But what I like more than all of these
-	Is to be on horseback.
-
-	Hey and away we go
-	Through the grass, across the snow
-	Big brown beastie, big brown face
-	I'd rather be with you than flying through space.
+	Takhle nějak to bylo:
+	Jedlo se, zpívalo, pilo.
+	Princezna zářila štěstím
+	v hotelu nad náměstím…
 
 „Poslyšte...“ promluvil chlápek. „Nejste vy náhodou Majka Kleinová?“ — „Jo, to jsem já...“ usmála se.
 
@@ -118,6 +113,8 @@ Když odcházel, řekla: „Počkejte!“ Otočil se za ní. Ona si vyhrnula si 
 
 > „Slova dozněla, ale počítače dál běžely a zaznamenávaly informace o dalších stovkách cizích lidí.“
 >
-> (Závěr povídky Stalker číslo 47)
->
-> Viz https://k47.cz/povidky/stalker-cislo-47.html
+> (Závěr povídky Stalker číslo 47)[^pof2]
+
+[^pof1]: Viz Karel Plíhal: Pohádka
+
+[^pof2]: Viz https://k47.cz/povidky/stalker-cislo-47.html

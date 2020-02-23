@@ -4,7 +4,7 @@ Básník a bezdomovec k sobě nemají zas až tak daleko. Ne, nemyslím toho bá
 
 Přes tohle všechno jsem neměl chuť sdílet nádražní čekárnu s bezdomovci. Byl čas, byla zima, peníze nebyly, tak jsem se rozhodl se trochu projet. Čistě jen proto, abych se zahřál — jako bezdomovec. Druhý důvod byla ta vůně dálek — měl jsem tímto způsobem projetu většinu města. Znal jsem město dobře, alespoň natolik dobře, nakolik ho z okýnka autobusu poznat šlo.
 
-Náměstí Pařížské komuny — typické pro náš svět — ulice a náměstí si pojmenováváme po osobnostech a historických událostech, abychom pak nevěděli, kdo nebo co to bylo. Šlapeme po vlastní historii. Ale není to vlastně jedno? Snad ano, pro většinu lidí jsou to jen názvy. Stejně tak pro mě bude Náměstí Pařížské komuny to místo, kde přistoupila *ta* holka, nehledě na to, co to vlastně Pařížská komuna byla.
+Náměstí Pařížské komuny — typické pro náš svět — ulice a náměstí si pojmenováváme po osobnostech a historických událostech, abychom pak nevěděli, kdo nebo co to bylo. Šlapeme po vlastní historii. Ale není to vlastně jedno? Snad ano, pro většinu lidí jsou to jen názvy. Stejně tak pro mě bude Náměstí Pařížské komuny to místo, kde přistoupila TA holka, nehledě na to, co to vlastně Pařížská komuna byla.
 
 A stejné je to s autobusy. Když někoho v knize přejede tramvaj, nedozvíte se obvykle, jaká tramvaj to byla. Autor knihy se obvykle spokojí s tím, že napíše, jakou měla barvu nebo jaké nesla číslo linky. K tomu, aby uvedl výrobce, nebo dokonce typ, se však nemá. Je to jednoduché — spisovatelé obvykle nebývají odborníci na veřejnou dopravu a pak, jak by řekli kritici, je to nepodstatný detail, který není součástí příběhu. Někdy to však součástí příběhu je. Ne každý autobus má totiž sedadla uspořádaná stejně nudně v řadách za sebou.
 
@@ -50,7 +50,7 @@ V tomhle jsem s ní byl zajedno. Ústřední archiv je skutečně mimořádně h
 
 Autobus projel po Železném mostě. Světla města se odrážela v řece a já si opět potvrdil, že byly žárovky vynalezeny proto, aby se mohly odrážet v řece. Řeka tu totiž byla před žárovkami.
 
-Přejeli jsme okolo Automatu Svět, fast foodu, kde blednoucí prodavačky nabízejí chlebíčky pamětníky. Autobus vjel na druhý břeh — do Podhradí.
+Přejeli jsme okolo Automatu[^tel] Svět, kde blednoucí prodavačky nabízejí chlebíčky pamětníky. Autobus vjel na druhý břeh — do Podhradí.
 
 Tady bych teda nechtěla bydlet, projelo hlavou mé spolujezdkyni.
 
@@ -87,3 +87,5 @@ Nikdy jsem pak už nic podobného nezažil. Zmíněnou holku jsem pak ještě je
 Myšlenky nejsou ke čtení, ke čtení jsou knihy.
 
 `Finis`
+
+[^tel]: Automaty byly předchůdci dnešního rychlého občerstvení. Jak už samotný název napovídá, jednalo se o podniky, ve kterých bývala část sortimentu nabízena pomocí prodejních automatů.
