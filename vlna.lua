@@ -10,7 +10,16 @@ local nesmi = {
 	a=true,
 	i=true,
 	o=true,
-	u=true
+	u=true,
+	
+	K=true,
+	S=true,
+	V=true,
+	Z=true,
+	A=true,
+	I=true,
+	O=true,
+	U=true
 }
 
 function Space(el)
