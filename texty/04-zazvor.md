@@ -1,6 +1,6 @@
 ## Zázvor aneb malá volební hudba
 
-> Jednu věc si ale uvědom: Ďasa si nevymejšlí pánbu. Čert se dycky rodí z lidského hříchu, i když se ho lidi snažej zapudit. Jeden knihou, jinej ohněm, další eště něčím jiným... No a když ho konečně zažehnaj, a že se s tím nějak nějak natrápěj, tak skrze to svý trápení zploděj dalšího čerta – a zase to všecko běží vod začátku pěkně dokola....
+> Jednu věc si ale uvědom: Ďasa si nevymejšlí pánbu. Čert se dycky rodí z lidského hříchu, i když se ho lidi snažej zapudit. Jeden knihou, jinej ohněm, další eště něčím jiným... No a když ho konečně zažehnaj, a že se s tím nějak natrápěj, tak skrze to svý trápení zploděj dalšího čerta – a zase to všecko běží vod začátku pěkně dokola....
 >
 > — S. Jaroslavcev: Ďábel mezi lidmi
 
@@ -14,9 +14,9 @@ Stejně tak není důvod, proč důvěřovat městské lince vlaku. Vede ve smě
 
 Markéta seděla a učila se na zkoušku z biologie o nějakých absurdních breberkách žijících ve slaném nálevu v továrně na kyselé okurky. Na Jižním nádraží přistoupili dva starší pánové, asi měli trochu upito. Ale to nebylo nezvyklé, tímhle posledním vlakem nikdo střízlivý nejezdí.
 
-„Večer si doma dám,“ začal jeden. „Jak se tomu říká? Babička to dávala mě malýmu – takový kořínek je to....“ – Druhý vzpomínal: „Jo nedávno jsem si z toho dělal čaj...“ – „Jak vono to jen....“
+„Večer si doma dám,“ začal jeden. „Jak se tomu říká? Babička to dávala mně malýmu – takový kořínek je to...“ – Druhý vzpomínal: „Jo nedávno jsem si z toho dělal čaj...“ – „Jak vono to jen...“
 
-„Zázvor“ řekla do ticha Markéta. Kyselých okurek měla už po krk.
+„Zázvor,“ řekla do ticha Markéta. Kyselých okurek měla už po krk.
 
 „To je ale chytré děvče,“ pochválil ji jeden, „zázvor je to.“ – „Ano. Ona je budoucnost tohoto města, my už jsme udělali dost,“ přizvukoval druhý.
 
@@ -32,9 +32,9 @@ No jistě! To jsou kandidáti na starostu! Už 14 dní tu bojujou o hlasy lidí 
 
 Vlak vjel na most.
 
-„Věřím jen těm statistikám, které jsem si sám zfalšoval, jak říkával Churchill…“ poučoval druhý. „A nebo to říkal Goebbels? No, to je jedno, na tom nesejde. Každopádně si myslím, že máš tohle období výhru skoro v kapse. Z demografického hlediska jsi zacílil na generaci babyboomu…“
+„Věřím jen těm statistikám, které jsem si sám zfalšoval, jak říkával Churchill…,“ poučoval druhý. „A nebo to říkal Goebbels? No, to je jedno, na tom nesejde. Každopádně si myslím, že máš tohle období výhru skoro v kapse. Z demografického hlediska jsi zacílil na generaci babyboomu…“
 
-Markéta vzhlédla od nálevníků. Kozák a Taškár, ale který je který? Navíc mají prohozené insignie: Ten s odznáčkem má na klopě obličej toho druhého, toho co něco zkoumá v brožuře „Společně za město“ (neveděla, že to, co ho zaujalo, byla jedna hezká fanynka té strany, ve skutečnosti začínající irská herečka). Oba politikové se tvářili nadmíru spokojeně. Ta noc byla jejich. Sčítání hlasů začalo. Vlak vjel do tunelu.
+Markéta vzhlédla od nálevníků. Kozák a Taškár, ale který je který? Navíc mají prohozené insignie: Ten s odznáčkem má na klopě obličej toho druhého, toho, co něco zkoumá v brožuře „Společně za město“ (nevěděla, že to, co ho zaujalo, byla jedna hezká fanynka té strany, ve skutečnosti začínající irská herečka). Oba politikové se tvářili nadmíru spokojeně. Ta noc byla jejich. Sčítání hlasů začalo. Vlak vjel do tunelu.
 
 Ona taková okresní politika, když na to přijde, je leckdy drsnější než politika mezinárodní.
 
@@ -52,17 +52,17 @@ S ohněm v očích stoupala dál, ale ta postava jí byla čím dál známějš�
 
 On to byl teda divný patron. To jo. Divný dokonce i na poměry filozofické fakulty. Ale tohle?
 
-„Dobrý den!“ pozdravila ho schválně dost nahlas. Vzhlédl od bronzové mísy: „Dobrý večer, Markéto, co tady děláte?“ – „Na to samý jsem se chtěla zeptat já vás. Já tu totiž bydlím.“ – Nadechl se, položil poloprázdnou láhev Zázvorovice na zem vedle mísy a podíval se na Markétu: „Dělám takový malý obřad na ozdravení demokracie.“ – Skoro vyprskla smíchy: „Prosím!?“ – „No prostě pálim nepoužité volební lístky za tichého zpěvu Finských metalových balad…“ Na tváři Markéty se začal rýsovat jakýsi neurčitý škleb, tak spěšně dodal: „Je to taková moje tradice, dělám to každé volby.“ – „Tak doufám, že se vám tu demokracii podaří ozdravit.“ Řekla s trochou ironie v hlase. „Viděla jsem před chvílí Kozáka s Taškárem, jak se spolu družně baví.“ – „To jste nevěděla?“ zeptal se jí překvapeně.
+„Dobrý den!“ pozdravila ho schválně dost nahlas. Vzhlédl od bronzové mísy: „Dobrý večer, Markéto, co tady děláte?“ – „Na to samý jsem se chtěla zeptat já vás. Já tu totiž bydlím.“ – Nadechl se, položil poloprázdnou láhev Zázvorovice na zem vedle mísy a podíval se na Markétu: „Dělám takový malý obřad na ozdravení demokracie.“ – Skoro vyprskla smíchy: „Prosím!?“ – „No prostě pálim nepoužité volební lístky za tichého zpěvu finských metalových balad…“ Na tváři Markéty se začal rýsovat jakýsi neurčitý škleb, tak spěšně dodal: „Je to taková moje tradice, dělám to každé volby.“ – „Tak doufám, že se vám tu demokracii podaří ozdravit.“ Řekla s trochou ironie v hlase. „Viděla jsem před chvílí Kozáka s Taškárem, jak se spolu družně baví.“ – „To jste nevěděla?“ zeptal se jí překvapeně.
 
-Ne, nevěděla to. O politiku se nezajímala a to málo, co se dozvěděla, jí vždy stačilo utvrdit v jejím nezájmu. Netušila, že se znají už z dob před svým politickým působením. Netušila, že mezi jejich stranami se vede už téměř sto let taková místní studená válka. Nesnáší se, ale potřebují se. Jedna strana si nemůže dovolit druhou zlikvidovat, protože by se pak neměla vůči čemu vymezit.
+Ne, nevěděla to. O politiku se nezajímala a to málo, co se dozvěděla, ji vždy stačilo utvrdit v jejím nezájmu. Netušila, že se znají už z dob před svým politickým působením. Netušila, že mezi jejich stranami se vede už téměř sto let taková místní studená válka. Nesnáší se, ale potřebují se. Jedna strana si nemůže dovolit druhou zlikvidovat, protože by se pak neměla vůči čemu vymezit.
 
 Rozloučila se s filozofem a pokračovala domů. Bydlet sám má své nepochybné nevýhody a pochybné výhody. A naopak. To, že mohla ve dvě v noci v klidu šramotit (ale i rachotit a rámusit) po bytě, byla ta pochybná výhoda. To, že všechny talíře, co ráno nechala nemyté v kuchyni, stále leží tam, kde je položila, byla ta nepochybná nevýhoda. Byla však příliš ospalá na to, aby s nimi něco udělala.
 
 Už stála v koupelně v županu a čistila si zuby, když si na něco vzpomněla. Volební lístky!
 
-V zásuvce psacího stolu ležela ještě neotevřená sada volebních lístků. Markéta nezvolila[^z2].
+V zásuvce psacího stolu ležela ještě neotevřená sada volebních lístků. Markéta nezvolila.[^z2]
 
-Jedním z důvodů byl mizerný výběr. Z kandidátů připadala v úvahu asi jen matka její spolužačky Valérie, samotná Valérie se však na možnost, že by se přes noc stala dcerou starostky, dívala docela kriticky. Kromě toho Markéta neměla čas. Všechny ty výstavy, zkoušky, včerejší koncert Krajní levice v baru U křepelky…
+Jedním z důvodů byl mizerný výběr. Z kandidátů připadala v úvahu asi jen matka její spolužačky Valérie, samotná Valérie se však na možnost, že by se přes noc stala dcerou starostky, dívala docela kriticky. Kromě toho Markéta neměla čas. Všechny ty výstavy, zkoušky, včerejší koncert Krajní levice v baru U Křepelky…
 
 Otevřela zásuvku a vzala lístky. Přemýšlela, zda to stojí za to chodit ven, a nakonec se rozhodla, že jo. Oblékla si mikinu a tepláky, na šaty, ve kterých přišla, už byla venku moc zima.
 
@@ -72,16 +72,16 @@ Dobrovská, Kozák, Taškár, Flink… Jména se kroutila a měnila v prach. Mar
 
 Přisedla si na mísu a zadívala se do ohně. Filozof se pomalu zvedl. Zřejmě mu nepřipadalo vhodné sedět na jedné míse společně se svou studentkou. Nehleděl na to, že ta mísa má tři metry v průměru.
 
-„Markéto, víte proč se pořádají volby?“ – „Ne,“ odpověděla prostě. Na noční diskuzi spojenou s citováním Nietzscheho a Platóna neměla ani čas ani chuť ani náladu. – „Z toho samého důvodu, jako se ve starém Římě pořádaly kalendy. Lidé musí na pár dní získat pocit, že je vše dovoleno. Že si o svém životě rozhodují sami, a považte to – dokonce, že si vládnou sami!“ Filozof domluvil. Dole v údolí projel po železničním mostě nákladní vlak. Markéta mlčela.
+„Markéto, víte proč se pořádají volby?“ – „Ne,“ odpověděla prostě. Na noční diskuzi spojenou s citováním Nietzscheho a Platóna neměla ani čas ani chuť ani náladu. – „Z toho samého důvodu, jako se ve starém Římě pořádaly kalendy. Lidé musí na pár dní získat pocit, že je vše dovoleno. Že si o svém životě rozhodují sami – a považte to – dokonce, že si vládnou sami!“ Filozof domluvil. Dole v údolí projel po železničním mostě nákladní vlak. Markéta mlčela.
 
 „Hmmm. A po volbách…“ Pokračoval filozof a vzal jeden z volebních lístků z mísy. Lístek se mu tím zvednutím v ruce dočista rozsypal na popel. „A po volbách se tahle iluze rozsype. Skutečné moci se opět chopí nikým nevolené šedé eminence a další čtyři roky novodobého otroctví se rozjedou nanovo.“ Vlak v údolí vyjel z tunelu a plazil se jako železný had mezi odstavenými vagóny na Východním nádraží.
 
-Markéta vzala láhev Zázvorovice stojící u paty mísy a ochutnala. Otřásla se jako pes. Zázvorovice bylo vůbec to nejšílenější, co kdy pila. Nad parkem, kde stáli, projel taxík.
+Markéta vzala láhev Zázvorovice stojící u paty mísy a ochutnala. Otřásla se jako pes. Zázvorovice byla vůbec to nejšílenější, co kdy pila. Nad parkem, kde stáli, projel taxík.
 
 „Jak můžete s takovýmhle názorem každé ráno vstát, jít do školy a tam vyučovat?“ zeptala se ho a položila lahev Zázvorovice na okraj mísy. Filozof lovil v hlavě jakýsi Nietzscheho citát, ale než ho stačil vyslovit, Markéta zmizela za teréním zlomem v přízemní chodbě činžáku.
 
-`Ámen`
+`Amen`
 
 [^z2]: A tady je dobré připomenout, že v Hlubočici mají místní (obecní) úřady o dost silnější pravomoci než v Čechách. Jedním z důsledků je i přímá volba starosty.
 
-![No prostě pálim nepoužité volební lístky za tichého zpěvu Finských metalových balad…](obrazky/nahled_04.jpg)
+![No prostě pálim nepoužité volební lístky za tichého zpěvu finských metalových balad…](obrazky/nahled_04.jpg)

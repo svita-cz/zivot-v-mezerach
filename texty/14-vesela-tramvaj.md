@@ -83,7 +83,7 @@ Markétě pak ze snu nejvíc utkvěla svraštělá kůže na patě,
 kterou z toho pózování ve vodě měla. Zrovna, když si na to stěžovala,
 někdo jí sáhl na rameno.
 
-Někdo jí sáhl na rameno, ale to už nebyla ve vířivce ale v tramvaji.
+Někdo jí sáhl na rameno, ale to už nebyla ve vířivce, ale v tramvaji.
 „Vstávejte slečno, přejela jste konečnou,“ budil ji šetrně tramvaják.
 Markéta se rozhlídla, a když si uvědomila, která bije, řekla jen tiše
 „Děkuju“ a vystoupila. Tramvaják zavřel dveře
@@ -118,7 +118,7 @@ V tom snu opět seděla tomu sochaři ze včerejška modelem pro obraz.
 Jmenovalo se to „Dáma s hranostajem“, ale protože v tom parku pod klášterem,
 kde se obraz maloval, hranostajové nežijí, musela si Markéta vystačit
 s veverkou, kterou sochař chytil. Veverka ale nebyla dobrá modelka
-— Markétě se v náručí stále vrtěla a vzpínala a jako vrchol všeho
+— Markétě se v náručí stále vrtěla a vzpínala, a jako vrchol všeho
 jí ta mrcha chlupatá začala jíst korále. Markéta se ji už už chystala okřiknout,
 ale vtom jí někdo zatleskal před obličejem. „Vstávejte, slečno, konečná!“
 oznamoval jí pobaveně tramvaják. — „Děkuju,“ vyhrkla a vystoupila.
@@ -169,7 +169,7 @@ příliš nepotěšil — bude tu dvacet minut čekat. Tak se šla trochu projí
 
 Každá země má své specifické zvyky, co jinde nenajdete.
 Například v Hlubočici jsou to díry v plotech.
-Je jich spousty, všichni o nich vědí a nikdo s tím nic nedělá.
+Jsou jich spousty, všichni o nich vědí a nikdo s tím nic nedělá.
 Existuje teorie, podle které jsou to únikové cesty místní domobrany.
 Markéta jednu takovou díru v plotě šla navštívit.
 
@@ -178,8 +178,8 @@ Kolika klukovin a lumpáren byla tato díra svědkem?
 Kolik neobvyklých předmětů tudy bylo na koupaliště přineseno?
 Kdo ví, jisté je jen to, že Markéta odkryla pletivo a vstoupila dírou
 do areálu koupaliště. Procházela ztichlým areálem, míjela prázdné pláže
-a zavřené stánky. na houpačkách se nikdo nehoupal, ve sprchách se nikdo
-nesprchoval, pouze támhle jakýsi medvěd, nebo co to bylo,
+a zavřené stánky. Na houpačkách se nikdo nehoupal, ve sprchách se nikdo
+nesprchoval, pouze tamhle jakýsi medvěd, nebo co to bylo,
 lovil zbytky z koše u stánku s langoši a jedl je. Nechala ho jíst.
 
 Pak ale zaslechla šplouchání a na zšeřelé vodní hladině zahlédla jakýsi pohyb.
@@ -212,20 +212,20 @@ Tramvajová trať do Suché Vsi má venkovský charakter.
 Vede mimo silnici po náspu mezi řekou a pískovnami.
 Ani řeka ani pískovny v noci nesvítí, a tak byla za oknem tma
 a v tramvaji teplo — ideální podmínky na spaní.
-Markéta tak usnula než bys řekl šve... chrrr...
+Markéta tak usnula, než bys řekl šve... chrrr...
 
 Ve snu se opět dostala do Manetova obrazu, tentokrát se stala barmankou
 v baru ve Folies-Bergère. A pochopila ten melancholický výraz,
 který ta žena na obraze měla. Bar byl před krachem. Nájmy v centru byly vysoké,
 na místní byl bar příliš drahý, turistů jezdilo rok od roku míň.
 K tomu měl majitel dluhy a snažil se z podniku vytáhnout každou
-Stelu[^vt2],
+stelu[^vt2],
 co šla. Zákazníci se do baru chodili bavit, zatímco bar řešil existenční potíže.
 
 A zatímco Markéta spala, vstoupil jsem do příběhu já — vypravěč a spisovatel.
 To se tak často nestává, aby do příběhu vstoupil spisovatel.
-Vstoupil jsem do tramvaje a jak tramvaj šplhala Zamenhofovou ulicí,
-všiml jsem si, že v ní spí Markéta. Ve večerních šatech s kabelkou
+Vstoupil jsem do tramvaje, a jak tramvaj šplhala Zamenhofovou ulicí,
+všiml jsem si, že v ní spí Markéta. Ve večerních šatech, s kabelkou
 na klíně spala vsedě tak neuvěřitelně elegantním způsobem.
 Nechtělo se mi ji budit, už proto, jak elegantně spala.
 To už jsem ale psal dříve, dodám tedy jen, že jsem se se spící Markétou svezl
@@ -254,16 +254,16 @@ a přepravovat se jako běžný smrtelník. Protože však měla usínání dos
 raději celou cestu stála.
 
 Na Větrnou hůrku tramvaje nejezdí, a tak byla Markéta nucená přestoupit
-na zastávce U lípy na autobus. Byla už z té okružní cesty po městě unavená,
+na zastávce U Lípy na autobus. Byla už z té okružní cesty po městě unavená,
 tak si sedla. Přece za ty tři zastávky neusne, říkala si.
 
 Mýlila se. Opět usnula.
 
 Ve snu byla na Snídani veslařů, té od Renoira. Společnost jí dělali lidé,
 se kterými strávila včerejší večer a dnešní ráno. Všichni se skvěle bavili
-a Markéta si povídala s tím sochařem ze včerejška — ze dneška o umění.
+a Markéta si povídala s tím sochařem ze včerejška/ze dneška o umění.
 
-„...mě se ty vaše sochy líbí, říkám to upřímně.
+„...Mně se ty vaše sochy líbí, říkám to upřímně.
 Nevím proč, ale líbí,“ chválila ho. — „To mě těší,“ rozpačitě se usmál.
 Ve snu byl méně opilý než ve skutečnosti. „A... jaké sochy se vám
 třeba nelíbí?“
@@ -336,8 +336,8 @@ a stejně tak i on do povídky o Markétě.
 
 Auto zmizelo za obzorem, zastávka Zelňáky, pole, opět osiřela
 a zůstal jen vítr prohánějící se zelím. Markéta po dlouhých pěti hodinách
-dorazila domů a tím končí tato povídka.)
+dorazila domů a tím končí tato povídka.
 
-[^vt1]: je to jen shoda jmen, Mariím z Marienbadu se taky nikdo nesměje
+[^vt1]: Je to jen shoda jmen, Mariím z Marienbadu se taky nikdo nesměje.
 
 [^vt2]: místní měna v Hlubočici
